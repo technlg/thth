@@ -1,0 +1,84 @@
+# โรงงานแปรรูปทอง witwatersrand
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บ่อทองและการทำเหมืองทองคำในสยามยุคใหม่ by .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## บ่อทองและการทำเหมืองทองคำในสยามยุคใหม่ by .
+Title: บ อทองและการทำเหม องทองคำในสยามย คใหม, Author: Walailak Songsiri, Name: บ อทองและการทำ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Guidelines in Developing Effectiveness of Small .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## (PDF) Guidelines in Developing Effectiveness of Small .
+The objective of this research were 1) to study the characteristics of corporate entrepreneurship in small and medium tour operator, 2) to study the influences of corporate entrepreneurship on effectiveness of small and medium tour operator, 3) to
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ศูนย์บรรณสารสนเทศ มหาวิทยาลัยหัวเฉียวเฉลิม ](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## ศูนย์บรรณสารสนเทศ มหาวิทยาลัยหัวเฉียวเฉลิม 
+การแปรร ป ร ฐว สาหก จไทย น นทว ฒน บรมาน นท  พระราชบ ญญ ต โรงงาน พ.ศ. 2535 ธ ระพล อร ณะกส กร Science Center คำอธ บายค ำประก น จำนอง จำนำ ภารต ดพ น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bdc412 Africa](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Bdc412 Africa
+Bdc412 Africa 1. ทว ปแอฟร กา 2. 1. ท ต งและอาณาเขต ทว ปแอฟร กาต งอย ระหว างประมาณละต จ ด 37 องศาเหน อ ถ ง 34 องศาใต ลองจ จ ด 51 องศาตะว นออกถ ง 17 องศาตะว นตก โดยม เส นศ นย ส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![thaidesignguru - Bag Shop ใน เขตสาทร](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## thaidesignguru - Bag Shop ใน เขตสาทร
+เร มต นป ใหม ด วยเทรนด กระเป าผ าใหม ๆ คร งน โรงงานทำกระเป าผ า เอาสาระด ๆ ของประโยชน ของการ ส งทำ กระเป าผ า ถ งผ า กระสอบ ท เอาใจหน วยงาน องค กร แบรนด ส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การขุดและแร่ธาตุในแอฟริกาใต้ - แอฟริกา - 2020](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## การขุดและแร่ธาตุในแอฟริกาใต้ - แอฟริกา - 2020
+โรงงานแปรร ปหล กระด บโลกใช งานได ก บเหล กกล าคาร บอนสแตนเลส อล ม เน ยมทองคำและแพลท น ม แอฟร กาใต ย งเป นผ นำระด บโลกด านเทคโน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานที่ท่องเที่ยวในมหาวิทยาลัย Witwatersrand .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## สถานที่ท่องเที่ยวในมหาวิทยาลัย Witwatersrand .
+มหาว ทยาล ย Witwatersrand เป นแหล งท องเท ยวท สำค ญอ กแห งใน โจฮ นเนสเบ ร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![insee kh 32 by Napat Sirithum - Issuu](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## insee kh 32 by Napat Sirithum - Issuu
+ชาวเยอรม นคว าเหร ยญทอง สร างโรงเร ยนจากว สด ธรรมชาต 40  เปล ยนโรงงาน เป น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กานาการทำเหมืองแร่ขนาดใหญ่](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## กานาการทำเหมืองแร่ขนาดใหญ่
+บ อเกล อ แร โพแทช ในร ฐ Utah - Pantip อ ปกรณ โรงงานเหม องแร ม อสอง pantip com e ไปด การข ดค นทองในลาวก นค ะ ท ม ไว เ พ อการทำแร โดยเฉพาะ แผ นพรม 1 ตารางเมตร ราคา 100 เหร ยญ ค ะ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บ้านทิพย์สวนทองรีสอร์ท - ที่พัก อัมพวา .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## บ้านทิพย์สวนทองรีสอร์ท - ที่พัก อัมพวา .
+หล กหน ความว นวายของช ว ตในเม องกร ง และความแออ ดของสถานท ท องเท ยวต างๆ เข ามาอ งแอบแนบช ดก บธรรมชาต ในบ านท พย สวนทอง ร สอร ทเล กๆท รวมเอาการพ กผ อน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทความ - ห้างทอง เอ เอ เยาวราช](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## บทความ - ห้างทอง เอ เอ เยาวราช
+ทองต แดง หมายถ งทองท ม ขายท วไปตามท องตลาดเช นทองเยาวราช ส วนใหญ จะเป นทอง 96.5% และผล ตด วยเคร องจ กรท ท นสม ย เหต ท เร ยกว าทองต แดงเน องจากร านทองส วนใ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ร่วมเคาท์ดาวน์ส่งท้ายปีเก่า นับถอยหลังเข้าสู่ปี ](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## ร่วมเคาท์ดาวน์ส่งท้ายปีเก่า นับถอยหลังเข้าสู่ปี 
+เข าส เทศกาลส งท ายป เก าต อนร บป ใหม ส วนใหญ คงจะหน เม องกร ง ออกไปส ดอากาศบร ส ทธ ก นท ต างจ งหว ด ส วนใครต ดส นใจว าจะฉลองป ใหม ก นท กร งเทพฯ ก ไม ต องน อย 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ศูนย์บรรณสารสนเทศ มหาวิทยาลัยหัวเฉียวเฉลิม ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## ศูนย์บรรณสารสนเทศ มหาวิทยาลัยหัวเฉียวเฉลิม 
+พนาล ทองประเสร ญ ช มชนเข มแข ง คณะกรรมการประสานงานองค กรฯ ประชาส งคม : ทรรศนะน กค ดในส งคมไทย น นทว ฒน บรมาน นท Sciarra, Dorothy June.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ร้านทองโร่ขอโทษ ปมแฉลูกค้าฉกสร้อยข้อมือ ที่แท้ ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## ร้านทองโร่ขอโทษ ปมแฉลูกค้าฉกสร้อยข้อมือ ที่แท้ 
+ค บหน ากรณ คนร ายล กทองคร งสล งของห างทอง ท แท เป นการเข าใจผ ด ล กค าหย บเก น พน กงานต ดต อล กค าไป จ งตรวจสอบพบว าม ทองเก นไปจร ง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทความ - ห้างทอง เอ เอ เยาวราช](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## บทความ - ห้างทอง เอ เอ เยาวราช
+ในประเพณ การแต งงานของคนไทย นอกจากส นสอดทองหม น พ ธ สงฆ การหล งน ำส งข แล ว ลำด บพ ธ สำค ญท ขาดไม ได อ กอย างหน งค อ ขบวนข นหมาก ซ งในการแห ข นหมากมาบ าน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ติดต่อเรา: ร้านสวนป่าสักทอง By .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## ติดต่อเรา: ร้านสวนป่าสักทอง By .
+ต ดต อ สอบถาม และสถานท ต งของร านสวนป าส กทอง By @106srltn เพ มเพ อน>> https://lin.ee/GxSAnTb ร ปต วอย าง: ผลงานต อเต มซ มไม ระแนงน งเล นหน าบ าน-ข างบ าน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บ้านต้นคิดทิพย์ธรรม](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## บ้านต้นคิดทิพย์ธรรม
+<div class="MsoNormal" style="margin-bottom: 6.0pt; margin-left: 0in; margin-right: 0in; margin-top: 6.0pt; text-align: justify; text-indent: .5in; text-justify 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slideshow Presentation | iloveyouwedding](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Slideshow Presentation | iloveyouwedding
+สไตล ย โรป เม องหนาว โรแมนต กสไตล Night Look ขร มน มล ก กรอบภาพหล ยส ห มะตก แบคกราวน ผ าป าน ธ มน โทนส เข ยวทอง ราคา 3,900 2,790 บาท
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [สายพานลำเลียงบดกรวยแอฟริกาใต้](%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [รักษาพารามิเตอร์ของโรงงานลูกต่างๆที่ใช้ในปูนซีเมนต์](%E0%B8%A3%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%9E%E0%B8%B2%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%B4%E0%B9%80%E0%B8%95%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%86%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C.md)
+* [timport และโรงงานผลิตลูกส่งออก](timport%20%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%AA%E0%B9%88%E0%B8%87%E0%B8%AD%E0%B8%AD%E0%B8%81.md)
+* [เครื่องผงอลูมิเนียมสิวหัวดำเยอรมัน](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9C%E0%B8%87%E0%B8%AD%E0%B8%A5%E0%B8%B9%E0%B8%A1%E0%B8%B4%E0%B9%80%E0%B8%99%E0%B8%B5%E0%B8%A2%E0%B8%A1%E0%B8%AA%E0%B8%B4%E0%B8%A7%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%94%E0%B8%B3%E0%B9%80%E0%B8%A2%E0%B8%AD%E0%B8%A3%E0%B8%A1%E0%B8%B1%E0%B8%99.md)
+* [ขายโรงบดแร่ทองคำแอฟริกาใต้](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [อุปกรณ์ที่ใช้ในการขุดหลุมเปิด](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%AB%E0%B8%A5%E0%B8%B8%E0%B8%A1%E0%B9%80%E0%B8%9B%E0%B8%B4%E0%B8%94.md)
+* [เครื่องบดของฉันที่ไม่ได้ใช้งานความสำเร็จที่ซ่อนอยู่](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%89%E0%B8%B1%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%84%E0%B8%A1%E0%B9%88%E0%B9%84%E0%B8%94%E0%B9%89%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%B3%E0%B9%80%E0%B8%A3%E0%B9%87%E0%B8%88%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%8B%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%AD%E0%B8%A2%E0%B8%B9%E0%B9%88.md)
+* [ขายโรงงานลูกชิ้นอินเดียเครื่องบดมือถืออินเดีย](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%8A%E0%B8%B4%E0%B9%89%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [โรงงานแปรรูปทอง witwatersrand](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%97%E0%B8%AD%E0%B8%87%20witwatersrand.md)
+* [เครื่องบดหินแคนาดาหัวหน้าคนงานเครื่องบดหินแคนาดา](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%84%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B8%B2%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%84%E0%B8%99%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%84%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B8%B2.md)

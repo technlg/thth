@@ -1,0 +1,84 @@
+# เครื่องบดคอนกรีต jitra
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องเจาะรูคอนกรีต ราคา-ขาย Bosch Makita | Toolmart](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## เครื่องเจาะรูคอนกรีต ราคา-ขาย Bosch Makita | Toolmart
+ซื้อเครื่องเจาะรูคอนกรีตที่ toolmartonline รับโปรโมชี่นราคาถูก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![List e-Thesis Faculty of Science, Mahidol University Library](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## List e-Thesis Faculty of Science, Mahidol University Library
+A study on the design and construction of the anesthesia jet ventilator for laryngeal surgery = การศ กษาออกแบบและสร างเคร องช วยหายใจแบบฉ ดอากาศสำหร บใช ว ส ญญ สำหร บการผ าต ดกล องเส ยง / .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แหล่งจำหน่าย เครื่องใช้สํานักงาน อุปกรณ์สำนักงาน](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## แหล่งจำหน่าย เครื่องใช้สํานักงาน อุปกรณ์สำนักงาน
+เก าอ ช างสเตนเลสป องก นไฟฟ าสถ ต แบบล อเหล ก 1 ล อ ฿3750.00
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cn คาร์ไบด์ที่จัดทำดัชนีแทรก, ซื้อ .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Cn คาร์ไบด์ที่จัดทำดัชนีแทรก, ซื้อ .
+ซ อ Cn คาร ไบด ท จ ดทำด ชน แทรก ท ด ท ส ด ส งตรงจากโรงงาน Cn บน Alibaba แล วย งหาแหล งท มา คาร ไบด ท จ ดทำด ชน แทรก จากท วโลกได อย างง ายดาย
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Senanuch Senanuch | Facebook](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Senanuch Senanuch | Facebook
+Senanuch Senanuch is on Facebook. Join Facebook to connect with Senanuch Senanuch and others you may know. Facebook gives people the power to share and เอสอาร ซ ปเปอร มาร ท สำน กงานใหญ S.R. Supermart, ขายท ด นท วไทย, ซ อขายท ด นเพชรบ รณ, ประชาส มพ นธ จ งหว ด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![พิจิตรา ครีม (Pijittra Cream) แฟรนไชน์เครื่องสำอางค์ .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## พิจิตรา ครีม (Pijittra Cream) แฟรนไชน์เครื่องสำอางค์ .
+ขายอะไรด ว นน เราจะพาเพ อนๆ ไปร จ กก บบร ษ ทผ ผล ตส นค าเคร องสำอางบำร งผ วในแบร นพ จ ตรา ผ นำเข า ร บพร ออเดอร จำหน ายเคร องสำอางค และจำหน ายส นค าแบร นด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rollform เครื่องรีด เครื่องรีดเหล็ก เครื่องรีดโลหะ ราง .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Rollform เครื่องรีด เครื่องรีดเหล็ก เครื่องรีดโลหะ ราง .
+Contact 850 /18 หม ท 3 ต.ท าม วง อ.ท า ม วง จ.กาญจนบ ร 71110 850/18 Moo 3 T.Tamuang A.Tamuang Kanchanaburi 71110 Tel: + 66 2 170 9036 Fax: + 66 2 170 9036 HOTLINE K.sam +668 1195 3324 Email : info@jiracentre website: 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fang Wijitra | Facebook](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Fang Wijitra | Facebook
+Fang Wijitra ใช งาน Facebook เข าร วม Facebook เพ อต ดต อก บ Fang Wijitra และคนอ นๆ ท ค ณอาจจะร จ ก Facebook ทำให ผ คนสามารถแชร ส งต างๆ เจ เน ยวหม กะทะ ซ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fang Wijitra | Facebook](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Fang Wijitra | Facebook
+Fang Wijitra is on Facebook. Join Facebook to connect with Fang Wijitra and others you may know. Facebook gives people the power to share and makes the นำเข าส นค าราคาถ กท กำล งเป นท น ยม, Blue Corner Thailand, XACT ME, โฟก ส จ ระก ล, ฝ ายเพาะเห ด-อย ธยา-TC/Cotton, ชมรมเห ด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hot Car: 11/2009](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Hot Car: 11/2009
+อาว โอ ข มพล งใหม 1.6 ล ตร ข าวในประเทศ – เชฟโรเลต เตร ยมเป ดต ว อาว โอ "รถเล กด ไซน บ ก" ท มาพร อมข มพล งใหม เหน อช นกว าด วยเคร องยนต ขนาด 1.6 ล ตร พร อมอ ด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![พิมพ์หน้านี้ - น้ำขึ้นให้รีบบอก](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## พิมพ์หน้านี้ - น้ำขึ้นให้รีบบอก
+6 ตค. 2554 10:59 น. ผ ส อข าวรายงานว า ต งแต ช วงเช าท ผ านมา เจ าหน าท ขององค การบร หารส วนตำบล ใน 4 ตำบลค อ ต.เช ยงรากใหญ ต.บ านปท ม ต.บ านง ว และ ตำบลเช ยงรากน อย ของ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ราคา-ขายดอกเจียรคาร์ไบด์ ทรงดอกบัว 10mm. แกน 6 mm. .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## ราคา-ขายดอกเจียรคาร์ไบด์ ทรงดอกบัว 10mm. แกน 6 mm. .
+ตรวจสอบราคาดอกเจ ยรคาร ไบด ทรงดอกบ ว 10mm. แกน 6 mm. (G10) ดอกเจ ยรคาร ไบด เหล กเจ ยรน ย ทรงดอกบ ว 10mm. แกน6mm. (G10) ราคาถ กของเเท พร อมโปรโมช นราคาพ เศษได ท toolmartonline
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prince of Songkla University](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Prince of Songkla University
+ธนม ตรเคร องช ง เลขท ano_2516@hotmail, aung_bi@yahoo.th 46/8-9 ถ.เพชรเกษม ต.หาดใหญ CO01169 ธนร ตน เซ นเตอร เซอร ว ส 241/4031 ถ.ประชาสงเคราะห CO02901
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rollform เครื่องรีด เครื่องรีดเหล็ก เครื่องรีดโลหะ ราง .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Rollform เครื่องรีด เครื่องรีดเหล็ก เครื่องรีดโลหะ ราง .
+และด วยประสบการณ กว า 20 ป ท ผ านมา เราจ งไม สามารถออกไปจากวงการน ได เพราะท กส งท ร ก ค อ Rollforming (เคร องร ด) ด วยท มงานท ร ใจและเข มแข งในเร องค ณภาพด วยประสบ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cn คาร์ไบด์เครื่องมือแทรก, ซื้อ คาร์ไบด์เครื่องมือ ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Cn คาร์ไบด์เครื่องมือแทรก, ซื้อ คาร์ไบด์เครื่องมือ 
+ซ อ Cn คาร ไบด เคร องม อแทรก ท ด ท ส ด ส งตรงจากโรงงาน Cn บน Alibaba แล วย งหาแหล งท มา คาร ไบด เคร องม อแทรก จากท วโลกได อย างง ายดาย
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บรรณานุกรมรายงานวิจัยและวิทยานิพนธ์ 2550](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## บรรณานุกรมรายงานวิจัยและวิทยานิพนธ์ 2550
+Free essays, homework help, flashcards, research papers, book reports, term papers, history, science, politics บรรณาน กรมรายงานว จ ยและว ทยาน พนธ 2550 เล มท 50 / 59 ค าค น : Carcinoembryonic antigen - Curricula [Coures of study] ห องสม ดงานว จ ย ศ นย ข อสนเทศการว จ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ดอกเจียรคาร์ไบท์ | fnengineering](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## ดอกเจียรคาร์ไบท์ | fnengineering
+เคร องเช อม MIG,MAG ระบบอ นเว ร ทเตอร เครื่องเชื่อม MMA เครื่องเชื่อม TIG ระบบอินเวิร์กเตอร์
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เดชา รับตัดคอนกรีต ตัดพื้น ตัดถนน ตัดปูน .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## เดชา รับตัดคอนกรีต ตัดพื้น ตัดถนน ตัดปูน .
+เดชา รับตัดคอนกรีต ตัดพื้น ตัดถนน ตัดปูน เจาะคอริ่ง coring Tel. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ใช้เครื่องกำจัดความสุขของโรงสีค้อน](%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B3%E0%B8%88%E0%B8%B1%E0%B8%94%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%B8%E0%B8%82%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%84%E0%B9%89%E0%B8%AD%E0%B8%99.md)
+* [ผู้ผลิตเครื่องบดกรามในห้องปฏิบัติการเหมืองแร่ทองคำในออสเตรเลีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B9%83%E0%B8%99%E0%B8%AB%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%AD%E0%B8%AA%E0%B9%80%E0%B8%95%E0%B8%A3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2.md)
+* [บดในการขายทาปาชูล่า](%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B8%97%E0%B8%B2%E0%B8%9B%E0%B8%B2%E0%B8%8A%E0%B8%B9%E0%B8%A5%E0%B9%88%E0%B8%B2.md)
+* [ซื้อพริทอเรียหินปูนผง](%E0%B8%8B%E0%B8%B7%E0%B9%89%E0%B8%AD%E0%B8%9E%E0%B8%A3%E0%B8%B4%E0%B8%97%E0%B8%AD%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%9C%E0%B8%87.md)
+* [เครื่องบดหลัก nd เครื่องบดรองกานา](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%81%20nd%20%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%99%E0%B8%B2.md)
+* [ซัพพลายเออร์ของหน่วยโรงสีลูกวิจัยตามไฮเดอราบาด](%E0%B8%8B%E0%B8%B1%E0%B8%9E%E0%B8%9E%E0%B8%A5%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%AD%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%A7%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%A7%E0%B8%B4%E0%B8%88%E0%B8%B1%E0%B8%A2%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B9%84%E0%B8%AE%E0%B9%80%E0%B8%94%E0%B8%AD%E0%B8%A3%E0%B8%B2%E0%B8%9A%E0%B8%B2%E0%B8%94.md)
+* [หน้าจอดินจากหินปูน](%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%88%E0%B8%AD%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99.md)
+* [อุปกรณ์บดหินที่ใช้ในการขุดทอง](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87.md)
+* [เครื่องบดหินมือถือในนามิเบีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%83%E0%B8%99%E0%B8%99%E0%B8%B2%E0%B8%A1%E0%B8%B4%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2.md)
+* [โรงงานผลิตลูกทองแดงฟิลิปปินส์](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87%E0%B8%9F%E0%B8%B4%E0%B8%A5%E0%B8%B4%E0%B8%9B%E0%B8%9B%E0%B8%B4%E0%B8%99%E0%B8%AA%E0%B9%8C.md)

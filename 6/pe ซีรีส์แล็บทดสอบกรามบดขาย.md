@@ -1,0 +1,52 @@
+# pe ซีรีส์แล็บทดสอบกรามบดขาย
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สำนักวิจัยและบริการวิทยาศาสตร์และเทคโนโลยี (สวท ](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## สำนักวิจัยและบริการวิทยาศาสตร์และเทคโนโลยี (สวท 
+calibration, ISO 17025, ห องปฏ บ ต การสอบเท ยบ, ห องแลป, สอบเท ยบ, IEC 17025,Carbon, Low alloy steel, testing, ASTM, Chemical testing By weight,Titanium, Silicon, Stainless steel, Cast iron, ว เคราะห ความเส ยหาย, งานว จ ยและพ ฒนา, ทดสอบ, การส กหรอ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PANTIP.COM : B การหางานทำ - ตอนที่ 32 .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## PANTIP.COM : B การหางานทำ - ตอนที่ 32 .
+ตอนท 12 การสร างและพ ฒนาแบบทดสอบและการทดสอบ  การหางานทำ - ตอนท 27 แบบทดสอบสำหร บพน กงานขาย การตลาด - ตำแหน ง พน กงานขายผล ตภ ณฑ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ก การทดสอบสารส าคัญทางพฤกษเคมี การต้านอนุมูลอิสระ ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## ก การทดสอบสารส าคัญทางพฤกษเคมี การต้านอนุมูลอิสระ 
+ทดสอบฤทธ ต านอน ม ลอ สระ ด วยสารละลาย DPPH โดยเทคน คโครมาโทกราฟ แผ นบาง (Thin layer chromatography, TLC) 37 การทดสอบฤทธ การต านเช อแบคท เร ย 38 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สอบราคาซื้อแผ่นทดสอบความเข้ากันได้ของเลือด ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## สอบราคาซื้อแผ่นทดสอบความเข้ากันได้ของเลือด 
+( สำเนา ) ประกาศจังหวัดนครสวรรค์ เรื่อง สอบราคาซื้อแผ่นทดสอบความเข้ากันได้ของเลือด (๔๑.๑๑.๖๑.๐๖ ) โรงพยาบาลสวรรค์ประชารักษ์ มีความประสงค์จะ สอบ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PE เฉลี่ยอุตสาหกรรม หาจากไหนได้บ้างครับ - Pantip](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## PE เฉลี่ยอุตสาหกรรม หาจากไหนได้บ้างครับ - Pantip
+K-POP ซ ร ส เกาหล น กแสดงเกาหล อาหารเกาหล เท ยวเกาหล แฟช นเกาหล ภาษาเกาหล กล อง กล องถ ายร ป กล อง DSLR กล องว ด โอ เทคน คการถ ายร ป การ ต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ปัญหาการซื้อขายภาพทางเพศผ่านสื่อออนไลน์](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## ปัญหาการซื้อขายภาพทางเพศผ่านสื่อออนไลน์
+ค าส าค ญ : การซ อขาย, ภาพทางเพศ, ส อส งคมออนไลน การประชุมวิชาการน าเสนอผลงานวิจัยระดับชาติของนักศึกษาด้านมนุษย์ศาสตร์และสังคมศาสตร์ ครั้งที่ 2
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ประกาศสอบราคาจัดซื้อครุภัณฑ์เครื่องคอมพิวเตอร์ ](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## ประกาศสอบราคาจัดซื้อครุภัณฑ์เครื่องคอมพิวเตอร์ 
+ประกาศสอบราคาจ ดซ อคร ภ ณฑ เคร องคอมพ วเตอร ผ สนใจซ อเอกสารสอบราคาท สหกรณ ฯ สำน กงานใหญ ระหว างว นท 11 – 18 ต.ค. 2562 สำน กงานใหญ เลขท 3 ถนนอช ตวงศ ตำบลในเว ยง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PEA มอบโลหิต 15,853,500 ซีซี .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## PEA มอบโลหิต 15,853,500 ซีซี .
+ว นน (ว นท 10 ก นยายน 2562 เวลา 10.00 น.) นายยอดพจน วงศ ร กม ตร ประธานกรรมการกำก บด แลก จการท ด และความร บผ ดชอบต อส งคม การไฟฟ าส วนภ ม ภาค เป นประธานส งมอบโลห ต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เอกสาร สอบราคาซื้อ เลขที่ / สอบราคาซื้อครุภัณฑ์หอง ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## เอกสาร สอบราคาซื้อ เลขที่ / สอบราคาซื้อครุภัณฑ์หอง 
+ส ญญาซ อขาย . % ผ เสนอราคาจะต องส งแค ตตาล อก และหร อแบบร ปรายการละเอ ยดค ณล กษณะเฉพาะ ของ คร ภ ณฑ ห องปฏ บ ต การภาษาต างประเทศ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทดสอบรายการจัดซื้อจัดจ้าง - ทิพยประกันชีวิต](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## ทดสอบรายการจัดซื้อจัดจ้าง - ทิพยประกันชีวิต
+บร ษ ท ท พยประก นช ว ต จำก ด (มหาชน) Dhipaya life Assurance Public Company Limited place 63/2 อาคาร บร ษ ท ท พยประก นภ ย จำก ด (มหาชน) ช น 1,3,4,5 และ 6 ถนนพระราม 9 แขวงห วยขวาง เขตห วยขวาง กร .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [สำหรับกลไกป้องกันการหมุนของกรวยบด](%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%A5%E0%B9%84%E0%B8%81%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AB%E0%B8%A1%E0%B8%B8%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94.md)
+* [บดหินบะซอลต์](%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%B0%E0%B8%8B%E0%B8%AD%E0%B8%A5%E0%B8%95%E0%B9%8C.md)
+* [โรงงานบดสำหรับการแปรรูปโครไมท์](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B9%82%E0%B8%84%E0%B8%A3%E0%B9%84%E0%B8%A1%E0%B8%97%E0%B9%8C.md)
+* [ใช้โรงงานล้างทองสั่น](%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B9%89%E0%B8%B2%E0%B8%87%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%99.md)
+* [เครื่องบดหินทำเหมืองหิน](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [อุปกรณ์แปรรูปสำหรับแร่ทัลค์และแร่แมกนีไซต์](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%B1%E0%B8%A5%E0%B8%84%E0%B9%8C%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%81%E0%B8%A1%E0%B8%81%E0%B8%99%E0%B8%B5%E0%B9%84%E0%B8%8B%E0%B8%95%E0%B9%8C.md)
+* [สายพานลำเลียงขนาดในอินโดนีเซีย](%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%82%E0%B8%94%E0%B8%99%E0%B8%B5%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องทำทรายมือสองขายในอินเดีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%97%E0%B8%B3%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เหมืองทองในปากีสถาน](%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B2%E0%B8%81%E0%B8%B5%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99.md)
+* [ขายเครื่องอบกากมันสำปะหลังแอลจีเรีย](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%81%E0%B8%A1%E0%B8%B1%E0%B8%99%E0%B8%AA%E0%B8%B3%E0%B8%9B%E0%B8%B0%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B9%81%E0%B8%AD%E0%B8%A5%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)

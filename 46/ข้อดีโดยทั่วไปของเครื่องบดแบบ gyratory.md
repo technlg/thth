@@ -1,0 +1,80 @@
+# ข้อดีโดยทั่วไปของเครื่องบดแบบ gyratory
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การสกัด - Search | Food Network Solution](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## การสกัด - Search | Food Network Solution
+การสก ดแบบซ ปเปอร คร ท คอลฟล อ ด (Super critical fluid textraction) การสก ด (extraction) โดยการใช สารในสภาวะท ม อ ณหภ ม และความด นเหน อจ ดว กฤต ซ งจะม สมบ ต ในการซ มผ านของแข งได เหม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รูปแบบเว็บไซด์ ร้านขายของที่ระลึกพื้นเมือง - .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## รูปแบบเว็บไซด์ ร้านขายของที่ระลึกพื้นเมือง - .
+หน าแรก : เป นช องทางในการกล บมาย งหน าแรก ส นค า : ถ กออกแบบให ง ายต อการเล อกซ อโดยเล อกประเภทของใช ท เราต องการ หร อ สนใจ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตาราง เปรียบเทียบ กํา ลัง อัด คอนกรีต | fc = กํังาลอัด ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## ตาราง เปรียบเทียบ กํา ลัง อัด คอนกรีต | fc = กํังาลอัด 
+ตาราง เปร ยบเท ยบ ก า ล ง อ ด คอนกร ต กำล งอ ดของคอนกร ตก อนต วอย างร ปทรงกระบอกและร ปล กบาศก 1.5 คอนกร ต 1.5.1 ชน ด และก าล งของคอนกร ต ชน ดของคอนกร ตท ใช งานใน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข้อดีของคนไทย](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ข้อดีของคนไทย
+ข้อดีของคนไทย 1.ลืมง่าย 2.เข้ากับคนอื่นง่าย มีความรู้สึกเป็น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โครงการเหมืองแร่ (Mining Project)](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## โครงการเหมืองแร่ (Mining Project)
+หร อการบดละเอ ยด (Grinding) เป นการบดให ม ขนาดเล กกว า 2 ซ.ม. หร อให ม ขนาดเล กตามความต องการของการแต งแร ตามปกต ม กม การต ดต งเคร องค ดขนาดหร อเคร องค ดพวกแร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!["ออดิบ"ถอดพิษไข้-ละลายเสมหะ - คมชัดลึกออนไลน์](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## "ออดิบ"ถอดพิษไข้-ละลายเสมหะ - คมชัดลึกออนไลน์
+ค ดโซน (ของ) ว ยท น ประชาส มพ นธ ข าวในพระราชสำน ก คนในข าว ไลฟ สไตล หน งส อพ มพ ฉบ บว นน ท องเท ยว พระเคร อง To the world
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทบาทของลูกบอลกระดอนในเครื่องสั่นตะแกรง | Eversun ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## บทบาทของลูกบอลกระดอนในเครื่องสั่นตะแกรง | Eversun 
+The bouncing ball is an indispensable part of the vibrating screen. ฟ งก ช นของม นค อการเต นเป นจ งหวะและต ตะแกรงข นและลง, เพ อให ว สด ท ย ดต ดก บ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การทำงานของเครื่อง gyratory crusher](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## การทำงานของเครื่อง gyratory crusher
+เคร องย อยแบบหม น gyratory 500 t / h การออกแบบเครื่องบดแบบพิเศษนี้ตอบสนองต่อแนวโน้มของผู้ใช้เครื่องชงกาแฟแบบพิเศษในการใช้สูตรน้ำหนัก ที่เฉพาะ ขอใบเสนอ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(14) อื่น ๆ - DBD](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## (14) อื่น ๆ - DBD
+2. ช อท ใช ในการประกอบพาณ ชยก จ (Company Name) 3. ท อย ตามใบทะเบ ยนพาณ ชย (Address) 4. ช อเว บไซต (Website) 5. โปรดเล อกหมวดหม ของเว บไซต
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หน้าจอสั่นของจีนซัพพลายเออร์ผู้ผลิต&โรงงาน&- .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## หน้าจอสั่นของจีนซัพพลายเออร์ผู้ผลิต&โรงงาน&- .
+YINXING เป นหน งในผ ผล ตและซ พพลายเออร หน าจอส นการข ดม ออาช พท ส ดในประเทศจ น โรงงานของเรานำเสนอหน าจอส นการข ดค ณภาพด ท ส ดสำหร บขายด วยราคาท แข งข นได ย 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หมุน แปลว่าอะไร ดูความหมาย ตัวอย่างประโยค หมายความ ](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## หมุน แปลว่าอะไร ดูความหมาย ตัวอย่างประโยค หมายความ 
+levorotatory-หม นซ าย (แสงระนาบเด ยว) [แพทยศาสตร ๖ ส.ค. ๒๕๔๔]rotation in office การหม นเว ยนเปล ยนตำแหน ง [ร ฐศาสตร ๑๗ ส.ค. ๒๕๔๔] rotation in office การหม นเว ยนเปล ยนตำแหน ง, การออกจากตำ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข้อดีของการเกิดและอยู่ประเทศไทยมีอะไรบ้าง เคยคิด ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## ข้อดีของการเกิดและอยู่ประเทศไทยมีอะไรบ้าง เคยคิด 
+ข อด ของการเก ดและอย ประเทศไทยม อะไรบ าง เคยค ดเส ยดายไหมท เก ดประเทศไทย  ป ดหมดแล ว จะบ าตาย อาหารก ไม ได หลากหลายแบบ บ านเรา 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องบด ผลิตภัณฑ์และบริการ - TECH DIR](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## เครื่องบด ผลิตภัณฑ์และบริการ - TECH DIR
+เคร องบดพลาสต กแบบรอบช าร น SG-16N/16D/20N ม ใบม ดให เล อกสองแบบค อ paddle และ staggered ต วเคร องถ กออกแบบมาให ต งข างเคร องฉ ดพลาสต กเพ อบดสปร หร อช นงานร เจค สามารถป อน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รถสำรวจสภาพโครงสร้างชั้นทางด้วยตุ้มน้ำหนักกระแทก ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## รถสำรวจสภาพโครงสร้างชั้นทางด้วยตุ้มน้ำหนักกระแทก 
+รถสำรวจสภาพโครงสร างช นทางด วยต มน ำหน กกระแทก (Falling Weight Deflectometer) ใช ในการประเม นค ณสมบ ต ทางกายภาพของถนน ข อม ล FWD ถ กนำมาใช เป นหล กในการประมาณความจ โครง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การทำงานของเครื่อง gyratory crusher](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## การทำงานของเครื่อง gyratory crusher
+เคร องย อยแบบหม น gyratory 500 t / h การออกแบบเคร องบดแบบพ เศษน ตอบสนองต อแนวโน มของผ ใช เคร องชงกาแฟแบบพ เศษในการใช ส ตรน ำหน ก ท เฉพาะ ขอใบเสนอ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โปรดให้ความเห็นเรื่อง ข้อดีข้อเสียของไส้ผ้านวมใย ](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## โปรดให้ความเห็นเรื่อง ข้อดีข้อเสียของไส้ผ้านวมใย 
+โปรดให ความเห นเร อง ข อด ข อเส ยของไส ผ านวมใยไหมด วย ตอนน เห นในเน ตย ห อ Sil..M ผ นใหญ ส ด ราคาอย ท 7XXX ม ท ใหนถ กว าไหม หร อแนะนำย ห ออ นก ได ขอบค ณค ะ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องดูดควัน VS พัดลมระบายอากาศ .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## เครื่องดูดควัน VS พัดลมระบายอากาศ .
+การทำงานของเคร องด ดเหล กราง MAH170AC Heavy Duty Beam Bender ขนาดใหญ ให โค งงอได ในพร บตา  เป นขดเกล ยวและด ดสปร งท ม ความหนาด วยเคร องด ดแบบ เกล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เซี่ยงไฮ้บดโรงงานเครื่องจักร](%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%87%E0%B9%84%E0%B8%AE%E0%B9%89%E0%B8%9A%E0%B8%94%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3.md)
+* [กระบวนการแตกผลกระทบบด](%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%95%E0%B8%81%E0%B8%9C%E0%B8%A5%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%9A%E0%B8%9A%E0%B8%94.md)
+* [การระเบิดเนื่องจากอุปกรณ์จับยึดที่นำเข้าในโรงงานผลิตจิ๊ก](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B4%E0%B8%94%E0%B9%80%E0%B8%99%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%88%E0%B8%B1%E0%B8%9A%E0%B8%A2%E0%B8%B6%E0%B8%94%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%99%E0%B8%B3%E0%B9%80%E0%B8%82%E0%B9%89%E0%B8%B2%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%88%E0%B8%B4%E0%B9%8A%E0%B8%81.md)
+* [ผู้ผลิตเครื่องลอยการทำเหมืองรุ่น sf](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%A5%E0%B8%AD%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%A3%E0%B8%B8%E0%B9%88%E0%B8%99%20sf.md)
+* [ขายเครื่องบดในทมิฬนาฑู](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%97%E0%B8%A1%E0%B8%B4%E0%B8%AC%E0%B8%99%E0%B8%B2%E0%B8%91%E0%B8%B9.md)
+* [เครื่องแปรรูปหินมะนาวและดินขาว](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B0%E0%B8%99%E0%B8%B2%E0%B8%A7%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%B2%E0%B8%A7.md)
+* [ยิปซั่มบดกรวยยิปซั่ม](%E0%B8%A2%E0%B8%B4%E0%B8%9B%E0%B8%8B%E0%B8%B1%E0%B9%88%E0%B8%A1%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%A2%E0%B8%B4%E0%B8%9B%E0%B8%8B%E0%B8%B1%E0%B9%88%E0%B8%A1.md)
+* [โรงงานแปรรูปดินขาวของไนจีเรีย](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%B2%E0%B8%A7%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%84%E0%B8%99%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)
+* [รูปภาพของการป้องกันโลหะรอบ ๆ โรงงานผลิตลูกบอลหรือโรงงานผลิตแท่งในการขุด](%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%82%E0%B8%A5%E0%B8%AB%E0%B8%B0%E0%B8%A3%E0%B8%AD%E0%B8%9A%20%E0%B9%86%20%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%AD%E0%B8%A5%E0%B8%AB%E0%B8%A3%E0%B8%B7%E0%B8%AD%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%81%E0%B8%97%E0%B9%88%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94.md)
+* [โรงงานบดหินในซิมบับเว](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B4%E0%B8%A1%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%A7.md)

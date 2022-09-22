@@ -1,0 +1,56 @@
+# สัญลักษณ์ pfd บดขยี้ในวินด์ฮุก
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณะเด่นของข้อสอบปรนัย](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## ลักษณะเด่นของข้อสอบปรนัย
+แบบสอบท ไม ใช ภาษา (None verbal test)เหมาะสมก บผ ท อ านเข ยนหน งส อไม ได แบบสอบเตร ยมความพร อมสำหร บเด ก2. เวลาท ใช ตอบ แบบสอบจำก ดเวลาและใช ความเร วในการตอบ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ร.10 โปรดเกล้าฯ .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## ร.10 โปรดเกล้าฯ .
+ร.10 โปรดเกล าฯ ตราส ญล กษณ พระราชพ ธ บรมราชาภ เษก พ.ศ. 2562 ในการน ร ฐบาลขอเช ญชวนประด บ ตราส ญล กษณ พระราชพ ธ บรมราชาภ เษก ต งแต เด อนเมษายน - 4 พฤษภาคม 2563 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ภาพสัญลักษณ์ - SlideShare](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## ภาพสัญลักษณ์ - SlideShare
+ภาพสัญลักษณ์ ความหมาย กระบวนการ การคำานวณ กระบวนการที่นิยามไว้ การทำางานย่อย ข้อมูล รับ หรือ แสดงข้อมูลโดยไม่ระบุชนิดของอุปกรณ์ การตัดสิน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณะของสังคมดิสโทเปียที่ปรากฏในรวมเรื่องสั้น ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## ลักษณะของสังคมดิสโทเปียที่ปรากฏในรวมเรื่องสั้น 
+ส งคมในอ ดมคต แบบด สโทเป ย ในรวมเร องส น เร องส งโตนอกคอก ของจ ดาน นท เหล องเพ ยรสม ท ท ม ท งหมด 9 เร องน นสามารถจ าแนกตามแนวความค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สัญลักษณ์ที่ใช้ในแผนภาพ DFD - บทที่ 5 .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## สัญลักษณ์ที่ใช้ในแผนภาพ DFD - บทที่ 5 .
+แผนภาพ DFD เป นแบบจำลองกระบวนการท ใช ส ญล กษณ ในการนำเสนอ ซ งส ญล กษณ ท สามารถนำมาใช เข ยนแผนภาพ DFD จะม ท งของ Gane & Sarson และYourdon/Demarco แต สำหร บหน งส อเล มน จะใช ส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สัญลักษณ์ด้านความปลอดภัย - SLRI](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## สัญลักษณ์ด้านความปลอดภัย - SLRI
+ข อควรปฎ บ ต ใน การปฎ บ ต งานเก ยวก บสารเคม ค ม อห องปฎ บ ต การว เคราะห  ส ญล กษณ ด านความปลอดภ ย สถาบ นว จ ยแสงซ นโครตรอน (องค การ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สัญลักษณ์ธาตุ - Jergym](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## สัญลักษณ์ธาตุ - Jergym
+น กเคม ได ใช อ กษรต วแรกของช อธาต ในภาษาอ งกฤษและภาษาลาต น โดยใช ต วอ กษร ภาษาอ งกฤษ เป น ต วพ มพ ใหญ ถ าอ กษรต วแรกซ ำก นก พ มพ ต วอ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ภาพสัญลักษณ์ สำหรับเด็กปฐมวัย](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## ภาพสัญลักษณ์ สำหรับเด็กปฐมวัย
+ส วนใหญ แล วส งท จำเป นในการใช ภาพต าง ๆ เป นส ญล กษณ แทนต วเด กภายในโรงเร ยน ก ค อ ส ญล กษณ ต ดท ล อคเกอร และท วางรองเท า ค ณคร ประจำช นจะเป นผ จ ดทำภาพส ญล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ความรู้รอบตัว - Blogger](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## ความรู้รอบตัว - Blogger
+ได จ ดเสวนาเร อง&nbsp;<b>"แมวไทย อ กส ญล กษณ หน งของชาต ไทย"&nbsp; ซ งได ม การเผยแพร ประว ต ความเป นมาของแมวไทยโบราณพ นธ แท ว า ตามหล กฐานท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สัญลักษณ์ใหม่เงินรูปีสุดกิ๊บเก๋ | RYT9](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## สัญลักษณ์ใหม่เงินรูปีสุดกิ๊บเก๋ | RYT9
+14 ก.ย. "แอมะซอน" ประกาศร บสม ครงานอ ก 100,000 ตำแหน งในสหร ฐและแคนาดา 14 ก.ย. ใช้ชีวิตเกาะติดหน้าจอ ต้องดูแลสายตาด้วย 'วีพลัส (V Plus)' จาก ยูนิซิตี้
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สัญลักษณ์ในการเขียนแผนภาพกระแสข้อมูล - .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## สัญลักษณ์ในการเขียนแผนภาพกระแสข้อมูล - .
+ส ญล กษณ ท ใช ในการเข ยนแผนภาพกระแสข อม ล ประกอบด วย 4 ส ญล กษณ ด วยก น ค อ 1.สัญลักษณ์การประมวลผล (Process Symbol) เป็นการเปลี่ยนแปลงข้อมูลจากรูปแบบหนึ่่ง (Input)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ประเทศจีนโรงงานลูกกรวยแร่ทองคำสำหรับป้อน](%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B8%88%E0%B8%B5%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%9B%E0%B9%89%E0%B8%AD%E0%B8%99.md)
+* [อุปกรณ์ทองคำสำหรับที่นี่ในแอฟริกาใต้](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%99%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [หมายเหตุเกี่ยวกับโรงบดปูนซีเมนต์แนวนอนอิตาลี](%E0%B8%AB%E0%B8%A1%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%AB%E0%B8%95%E0%B8%B8%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C%E0%B9%81%E0%B8%99%E0%B8%A7%E0%B8%99%E0%B8%AD%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%95%E0%B8%B2%E0%B8%A5%E0%B8%B5.md)
+* [ที่ปรึกษากระบวนการผลิตถ่านหิน](%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9B%E0%B8%A3%E0%B8%B6%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [เครื่องขุดแร่สำหรับทองคำ](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [โรงงานรีดเย็นในซาอุดีอาระเบีย](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A3%E0%B8%B5%E0%B8%94%E0%B9%80%E0%B8%A2%E0%B9%87%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B2%E0%B8%AD%E0%B8%B8%E0%B8%94%E0%B8%B5%E0%B8%AD%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2.md)
+* [ขายเครื่องบดเอดมันตันอัลเบอร์ต้าแคนาดา](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%AD%E0%B8%94%E0%B8%A1%E0%B8%B1%E0%B8%99%E0%B8%95%E0%B8%B1%E0%B8%99%E0%B8%AD%E0%B8%B1%E0%B8%A5%E0%B9%80%E0%B8%9A%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%95%E0%B9%89%E0%B8%B2%E0%B9%81%E0%B8%84%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B8%B2.md)
+* [sizer ตั้งโรงงานแปรรูปแร่เหล็ก](sizer%20%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [ขั้นตอนของอุปกรณ์ขุดแถบคืออะไร](%E0%B8%82%E0%B8%B1%E0%B9%89%E0%B8%99%E0%B8%95%E0%B8%AD%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%81%E0%B8%96%E0%B8%9A%E0%B8%84%E0%B8%B7%E0%B8%AD%E0%B8%AD%E0%B8%B0%E0%B9%84%E0%B8%A3.md)
+* [สายพานลำเลียงสำหรับควอตซ์](%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%84%E0%B8%A7%E0%B8%AD%E0%B8%95%E0%B8%8B%E0%B9%8C.md)

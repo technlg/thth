@@ -1,0 +1,84 @@
+# สังกะสีแทนที่ทองคำจาก aqua regia
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทุกอย่างมันอยู่ที่ใจ: 2010 - Blogger](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## ทุกอย่างมันอยู่ที่ใจ: 2010 - Blogger
+เร มต นจาก ไฮโดรเจน ในจำนวน 92 ธาต เร ยงตามลำด บก นน น 88 ธาต เก ดข นในธรรมชาต อ ก 4 ธาต ค อ เทคน เท ยม (ลำด บ 43) โพรม เท ยม (ลำด บ 61) แอสทาท น (ลำด บ 85) ฟรานเซ ยม (ลำด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![transition 52: พฤษภาคม 2009](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## transition 52: พฤษภาคม 2009
+21/5/2009· ในป ค.ศ. 1803 W.H. Wollaston ชาวอ งกฤษก สามารถเตร ยมแพลท น มบร ส ทธ ได โดยการศ กษาสารละลาย aqua regia ของแพลท น มท ไม บร ส ทธ อย างละเอ ยด ซ งผลจากการศ กษาน เขาค นพบธาต ใหม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทอง แปลว่าอะไร ดูความหมาย ตัวอย่างประโยค หมายความ ](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## ทอง แปลว่าอะไร ดูความหมาย ตัวอย่างประโยค หมายความ 
+ทอง [N] gold, Syn. ทองคำ, กาญจนา, กนก, ส วรรณ, มาศ, Example: บ อทองท ชาวบ านข ดพบ เป นทองท ม เปอร เซ นต ค อนข างต ำ, Count unit: บาท, กร ม, สล ง, Thai definition: ธาต แท ชน ดหน งเน อแน นมาก ส เหล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![History and Story: Unconventional History in Michael .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## History and Story: Unconventional History in Michael .
+Then the iron free mixture was dissolved in aqua regia at 60 [degrees celsius] without stirring. Various factors influencing on leaching efficiency were investigated to obtain optimum condition.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cyanide introduction by Jutharat - SlideShare](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Cyanide introduction by Jutharat - SlideShare
+Cyanide introduction by Jutharat 1. รายงานว ชาการ ฉบ บท สอพ.4/2547 ความร เบ องต นเก ยวก บไซยาไนด CYANIDE INTRODUCTION จ ฑาร ตน อาชวร ตน ถาวร ส าน กอ ตสาหกรรมพ นฐาน กรมอ ตสาหกรรมพ นฐานและการ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Analysis of platinum concentrate by means of slurry .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Analysis of platinum concentrate by means of slurry .
+A relatively high-temperature oxidizing digestion using aqua regia has been developed for <0.1-5 g size samples of various types of rocks including silicates, sulfides, and metals prior to Re-Os 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทุกอย่างมันอยู่ที่ใจ: สารและการเปลี่ยนแปลง](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ทุกอย่างมันอยู่ที่ใจ: สารและการเปลี่ยนแปลง
+ธาต โลหะม ตระก ล ม สมบ ต พ เศษ ค อ ไม ทำปฏ ก ร ยาก บ ออกซ เจน ค อไม เป นสน ม ไม ละลายในกรดเบสใด ๆ ยกเว น กรดก ดทอง (aqua regia) ได จาก HCl+HNO3 เข มข น ในอ ตรา 3:1 โดยปร มาตร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ซื้อทองสะสมไว้เก็งกำไรกับลงทุนหุ้น แบบไหนความ ](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## ซื้อทองสะสมไว้เก็งกำไรกับลงทุนหุ้น แบบไหนความ 
+ขอเล าเร องของเพ อนก อนนะคะ ม เพ อนทำงานประจำ ชอบบ นว าไม ม ต งๆๆ ก นง ายๆประหย ด แกงถ งเด ยวก นได 1ม อ (พ อแม /ต วนาง) แต ชอบเก บเง นท เหล อจากการใช จ าย รวม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แวะสักการะ..สิ่งศักดิ์สิทธิ์ ใหญ่ระดับบิ๊กบน ](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## แวะสักการะ..สิ่งศักดิ์สิทธิ์ ใหญ่ระดับบิ๊กบน 
+มีสถานที่ให้เที่ยวมากมายหลายร ปแบบรอต อนร บน กท องเท ยวจากท วท กม มโลก บทความน จะพาค ณไปพบ 7 สถานท ท องเท ยว ท ข นช อเร องความใ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กระถางสังกะสีหูทองแดงทรงกรวย ถังสังกะสี ถังสังกะสี ](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## กระถางสังกะสีหูทองแดงทรงกรวย ถังสังกะสี ถังสังกะสี 
+กระถางสังกะสีหูทองแดงทรงกรวย ถ งส งกะส ถ งส งกะส ห ทองแดง แจก นส งกะส งานส งกะส กระถางส งกะส ห ทองแดงทรงกรวย [คล กเพ อด ภาพ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![transition 52: 2009](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## transition 52: 2009
+ในป ค.ศ. 1803 W.H. Wollaston ชาวอ งกฤษก สามารถเตร ยมแพลท น มบร ส ทธ ได โดยการศ กษาสารละลาย aqua regia ของแพลท น มท ไม บร ส ทธ อย างละเอ ยด ซ งผลจากการศ กษาน เขาค นพบธาต ใหม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทุกอย่างมันอยู่ที่ใจ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## ทุกอย่างมันอยู่ที่ใจ
+/>จากประโยชน ของเทคโนโลย อ นเทอร เน ต ท สามารถทำให เราสามารถเก บข อม ลต างๆของ<br />ล กค า ท เข ามาเย ยมชมเว บไซต เราแล ว ซ งส งผลให 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายการกรดไฮดรอกไซด์และคุณสมบัติทางเคมี ](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## รายการกรดไฮดรอกไซด์และคุณสมบัติทางเคมี 
+ม ธยมศ กษาและโรงเร ยน รายการกรดไฮดรอกไซด และค ณสมบ ต ทางเคม - ม ธยมศ กษาและโรงเร ยน - 2020
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) I S B N 9 7 8 -3 -9 4 4 5 0 7 -1 3 -2 I S S N 1 8 6 7 -4 .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## (PDF) I S B N 9 7 8 -3 -9 4 4 5 0 7 -1 3 -2 I S S N 1 8 6 7 -4 .
+Then the iron free mixture was dissolved in aqua regia at 60 [degrees celsius] without stirring. Various factors influencing on leaching efficiency were investigated to obtain optimum condition.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แร่วิทยา (Minerals) - RBRU](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## แร่วิทยา (Minerals) - RBRU
+บ านผ อ จ.อ ดรธาน, บ านบ อทอง จ.ชลบ ร, อ.ทองผาภ ม จ.กาญจนบ ร และเขาปะ จ.พ งงา เป นต น ทองคำ (Gold) ประโยชน ทองคำถ กใช เป นมาตรฐานของเง นตรา ใช ทำเคร องประด บ เคร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HPGR-revolution in platinum? - ResearchGate](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## HPGR-revolution in platinum? - ResearchGate
+Then the iron free mixture was dissolved in aqua regia at 60 [degrees celsius] without stirring. Various factors influencing on leaching efficiency were investigated to obtain optimum condition.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anger and Chess | Request PDF - ResearchGate](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Anger and Chess | Request PDF - ResearchGate
+Then the iron free mixture was dissolved in aqua regia at 60 [degrees celsius] without stirring. Various factors influencing on leaching efficiency were investigated to obtain optimum condition.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทความ - ห้างทอง เอ เอ เยาวราช](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## บทความ - ห้างทอง เอ เอ เยาวราช
+กระบวนการ "Aqua Regia" เป นท น ยมมากในต างประเทศเพราะ ให ความบร ส ทธ ท ส งกว าการก ดเเบบ ก มซ ว เพราะใช น ำกรด 2 ต วค อ กรดไนตร กเเละกรดไ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [แคตตาล็อกของเครื่องบดผลกระทบ](%E0%B9%81%E0%B8%84%E0%B8%95%E0%B8%95%E0%B8%B2%E0%B8%A5%E0%B9%87%E0%B8%AD%E0%B8%81%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9C%E0%B8%A5%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%9A.md)
+* [เครื่องบดหินศรีกฤษณะ](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A8%E0%B8%A3%E0%B8%B5%E0%B8%81%E0%B8%A4%E0%B8%A9%E0%B8%93%E0%B8%B0.md)
+* [กิโลวัตต์เดออูนามากีนาเดอโมลิเอนดามอลตา](%E0%B8%81%E0%B8%B4%E0%B9%82%E0%B8%A5%E0%B8%A7%E0%B8%B1%E0%B8%95%E0%B8%95%E0%B9%8C%E0%B9%80%E0%B8%94%E0%B8%AD%E0%B8%AD%E0%B8%B9%E0%B8%99%E0%B8%B2%E0%B8%A1%E0%B8%B2%E0%B8%81%E0%B8%B5%E0%B8%99%E0%B8%B2%E0%B9%80%E0%B8%94%E0%B8%AD%E0%B9%82%E0%B8%A1%E0%B8%A5%E0%B8%B4%E0%B9%80%E0%B8%AD%E0%B8%99%E0%B8%94%E0%B8%B2%E0%B8%A1%E0%B8%AD%E0%B8%A5%E0%B8%95%E0%B8%B2.md)
+* [หน้าจอสั่นสะเทือนแบบหมุนรอบแร่](%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%88%E0%B8%AD%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%99%E0%B8%AA%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%B7%E0%B8%AD%E0%B8%99%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%AB%E0%B8%A1%E0%B8%B8%E0%B8%99%E0%B8%A3%E0%B8%AD%E0%B8%9A%E0%B9%81%E0%B8%A3%E0%B9%88.md)
+* [fri เครื่องบดกรวยรวมประสิทธิภาพสูง](fri%20%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%A3%E0%B8%A7%E0%B8%A1%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B8%AA%E0%B8%B9%E0%B8%87.md)
+* [เครื่องบดมือถือไอริชขนาดใหญ่](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%84%E0%B8%AD%E0%B8%A3%E0%B8%B4%E0%B8%8A%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%83%E0%B8%AB%E0%B8%8D%E0%B9%88.md)
+* [เอธิโอเปียเครื่องอัดก้อนผงเหล็กขนาดเล็กสำหรับขาย](%E0%B9%80%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B9%82%E0%B8%AD%E0%B9%80%E0%B8%9B%E0%B8%B5%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B8%9C%E0%B8%87%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%82%E0%B8%B2%E0%B8%A2.md)
+* [คำจำกัดความสำหรับสายพานลำเลียง](%E0%B8%84%E0%B8%B3%E0%B8%88%E0%B8%B3%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87.md)
+* [ผู้ผลิตโรงบดฟลูออไรต์ในอินโดนีเซียสูง](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9F%E0%B8%A5%E0%B8%B9%E0%B8%AD%E0%B8%AD%E0%B9%84%E0%B8%A3%E0%B8%95%E0%B9%8C%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%82%E0%B8%94%E0%B8%99%E0%B8%B5%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2%E0%B8%AA%E0%B8%B9%E0%B8%87.md)
+* [เครื่องบดกรามผลิตในยุโรป](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%A2%E0%B8%B8%E0%B9%82%E0%B8%A3%E0%B8%9B.md)

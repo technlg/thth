@@ -1,0 +1,52 @@
+# คำถามการออกแบบมูลนิธิโรงสีลูก fdp
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบ คือ การวางแผนสร้างรูปแบบ โดยวางแผนจัด](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## การออกแบบ คือ การวางแผนสร้างรูปแบบ โดยวางแผนจัด
+การออกแบบ ค อ การวางแผนสร างร ปแบบ โดยวางแผนจ ด ส วนประกอบของการออกแบบ ให ส มพ นธ ก บประโยชน ใช สอย ว สด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบโครงงานที่มีิทธิประสภาพ การออกแบบโครงงาน ](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## การออกแบบโครงงานที่มีิทธิประสภาพ การออกแบบโครงงาน 
+การออกแบบ โครงงานท ม ประส ทธภาพกรอบเค: าโครงการค ด  ร บนกการศ กษาเพ ดหมวดหมอจ กลมของค าถามและก จกรรมการเร ยนร ตามท ข ตถ นตอน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คู มือการออกแบบอาคารสถานบริการสุขภาพ](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## คู มือการออกแบบอาคารสถานบริการสุขภาพ
+- การออกแบบเพ อคนท กกล ม ท กเพศ ท กว ย Universal Design 6 - การออกแบบเพ อการอน ร กษ พล งงาน 8 บทท 2 การก าหนดต าแหน ง/การวางผ งหล กสถานบร การส ข 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 6 การออกแบบผลิตภัณฑ์และการบริการ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## บทที่ 6 การออกแบบผลิตภัณฑ์และการบริการ
+Title บทท 6 การออกแบบผล ตภ ณฑ และการบร การ Last modified by Admin Created Date 5/18/2005 4:31:56 AM Document presentation format นำเสนอทางหน าจอ (4:3) Other titles Tahoma KodchiangUPC Arial Angsana New Wingdings Cordia New FreesiaUPC Verdana Arial Unicode MS Ocean 1_Ocean Adobe Photoshop Image การต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบและพัฒนาเคร ื่องมือทดสอบความซ ึมน้ําของด ](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## การออกแบบและพัฒนาเคร ื่องมือทดสอบความซ ึมน้ําของด 
+การออกแบบและพ ฒนาเคร องม อทดสอบความซ มน าของด นในสนาม ส าหร บการก อสร างอาคารชลประทาน Design and Development of Field Permeability Test for Irrigation Structure นายส ว ฒน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 2 การออกแบบระบบฐานข้อมูล](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## บทที่ 2 การออกแบบระบบฐานข้อมูล
+ข นตอนการออกแบบฐานข อม ล ข นตอนท 3 ก าหนดค ย ข นตอนน จะพ จารณาว า Field ใดบ าง ท ม ค ณสมบ ต เหมาะสม ท จะน า มาสร างเป นค ย ต างๆ (ในเส นประ ค อเล อกแล ว)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการออกแบบ](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## มาตรฐานการออกแบบ
+มาตรฐานในการออกแบบ: - แรงลมและการตอบสนองอาคาร ม.ย.ผ. - การออกแบบอาคารตานทานการส นสะเท อนของแผ นด นไหว ม.ย.ผ. 1302
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบและสร้างแอนิเมชัน - มหาวิทยาลัยราชภัฏลำปาง](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## การออกแบบและสร้างแอนิเมชัน - มหาวิทยาลัยราชภัฏลำปาง
+25 ตารางท 3-1 การออกแบบ/ค ณล กษณะต วละครและฉาก ค ณล กษณะ ต วละคร ช อ : แกะ เป นเด กผ ชายว ย 7 ขวบ ม น องชายฝาแฝดช อว า จ ก ม ล กษณะใบหน าร ปไข ผ วส แทน ไว ทรง
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คู มือการออกแบบอาคารและสภาพแวดล อม](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## คู มือการออกแบบอาคารและสภาพแวดล อม
+: เวชระเบ ยนiค ม อการออกแบบอาคารสถานบร การส ขภาพและสภาพแวดล อม ค าน า การพ ฒนาระบบบร การส ขภาพในส งก ดกระทรวงสาธารณส ขให ม ค ณภาพและมาตรฐานเด ยวก น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบมีความหมายสัมพันธ์กับข้อใด : .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## การออกแบบมีความหมายสัมพันธ์กับข้อใด : .
+การออกแบบม ความหมายส มพ นธ ก บข อใด1. การสร างสรรค ผลงานท แปลกใหม ข นมา2. การประด ษฐ ค ดค นส งใหม ให เก ดข น3.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เครื่องกดลูกถ่านหินเอธิโอเปีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%94%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B9%82%E0%B8%AD%E0%B9%80%E0%B8%9B%E0%B8%B5%E0%B8%A2.md)
+* [ขายเครื่องบดหินแกรนิตในสหราชอาณาจักร](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%AA%E0%B8%AB%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%AD%E0%B8%B2%E0%B8%93%E0%B8%B2%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3.md)
+* [ต้นทุนของเครื่องบดลูกเพื่อผลิตอนุภาคขนาดนาโน](%E0%B8%95%E0%B9%89%E0%B8%99%E0%B8%97%E0%B8%B8%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B9%80%E0%B8%9E%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%AD%E0%B8%99%E0%B8%B8%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B8%99%E0%B8%B2%E0%B9%82%E0%B8%99.md)
+* [แผ่นกรองโรงงานผลิตแร่ทองคำ](%E0%B9%81%E0%B8%9C%E0%B9%88%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [โรงบดแนวตั้งโรงงานเหมือง](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%99%E0%B8%A7%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87.md)
+* [ขายเครื่องบดสำหรับบดถ่านหิน](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%9A%E0%B8%94%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [เหมืองหินบดอินเดีย](%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องทำทรายซิลิก้า vsix ต้นทุนในอินเดีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%97%E0%B8%B3%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8B%E0%B8%B4%E0%B8%A5%E0%B8%B4%E0%B8%81%E0%B9%89%E0%B8%B2%20vsix%20%E0%B8%95%E0%B9%89%E0%B8%99%E0%B8%97%E0%B8%B8%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [หิน 26amp3b บดหินแกรนิตในอินเดีย](%E0%B8%AB%E0%B8%B4%E0%B8%99%2026amp3b%20%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [ราคาอุปกรณ์กัดแร่ทองคำ](%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)

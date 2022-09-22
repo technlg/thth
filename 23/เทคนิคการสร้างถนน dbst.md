@@ -1,0 +1,68 @@
+# เทคนิคการสร้างถนน dbst
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DBA : การคิดเชิงสร้างสรรค์ - ธนัณชัย สิงห์มาตย์ - .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## DBA : การคิดเชิงสร้างสรรค์ - ธนัณชัย สิงห์มาตย์ - .
+การค ดเช งสร างสรรค ในส งคมป จจ บ นย งขาดความสามารถในการค ดเช 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กรมส่งเสริมการปกครองท้องถิ่น - บทที่ 4](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## กรมส่งเสริมการปกครองท้องถิ่น - บทที่ 4
+มาตรฐานถนน ทางเด น และทางเท า 28 บทท 4 มาตรฐานงานก อสร างถนน ทางเด นและทางเท า 4. ค าการพองต ว (Swelling) ไม มากกว าร อยละ 4 5. ถ าเป นทราย ขนาดผ านตะแกรงเบอร 200 ไม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คู มือการจัดประเภทธุรกิจของนิติบุคคล กรมพัฒนา ](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## คู มือการจัดประเภทธุรกิจของนิติบุคคล กรมพัฒนา 
+กรมพ ฒนาธ รก จการค า 44/100 ถนนนนทบ ร 1 ตำบลบางกระสอ อำเภอเม อง จ งหว ดนนทบ ร 11000 ค ม อการจ ดประเภทธ รก จ ของน ต บ คคล กรมพ ฒนาธ รก จ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทำถนนคอนกรีตในหมู่บ้าน กว้าง 8 เมตร ยาว 150 เมตร .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## ทำถนนคอนกรีตในหมู่บ้าน กว้าง 8 เมตร ยาว 150 เมตร .
+จะทำถนนเข าบ านอะคร บ หน ากว าง 4 เมตร ยาวรวมๆน าจะร อยเมตร ท น ลองหาราคาในเน ต ทำไมด เหม อนยางมะตอยจะแพงกว าเลยคร บ (ตรมละ สองร อยกว าบาท เท ยบก บป น ค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สรุปผลการเด ินทางน ําคณะผ ู้ประกอบธ ุรกิจ เส้นทางต ](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## สรุปผลการเด ินทางน ําคณะผ ู้ประกอบธ ุรกิจ เส้นทางต 
+ม การสร างถนนเช อมต อระหว างเม องเป นถนนไฮเวย ฝ งละ 3 ช องจราจร และเจาะภ เขาเพ อสร าง ถนนท าให สามารถลด ระยะทางลง การจราจรไม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คู มือวิธีการปฏ ิบัติงานออกแบบและตรวจสอบ ผิวทางแอ ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## คู มือวิธีการปฏ ิบัติงานออกแบบและตรวจสอบ ผิวทางแอ 
+ในการปฏ บ ต งานออกแบบและตรวจสอบผ วทางแอสฟ ลต ให ได ผลงานท ม ค ณภาพท ด น น จ าเป น จะต องค าน งถ งส วนประกอบต างๆ ของขบวนการในการ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หลักสูตรเทคนิคการ Outbound Call และ .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## หลักสูตรเทคนิคการ Outbound Call และ .
+หล กส ตร เทคน คการ Outbound Call และ กลย ทธ การประชาส มพ นธ -สำรวจความพ งพอใจล กค า ทางโทรศ พท อย างม ประส ทธ ผล (Effective Communication Technique Outbound Call for Tele-Marketing & Tele-Survey) เป นหล กส ตรอบรมท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MOTOR Car](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## MOTOR Car
+จ งถ กพ ฒนาข น<br /><br /> ขณะน รถยนต ไฮบร ดม จำหน ายท งในอเมร กา และญ ป น ซ งต อไปก คงจะม เข ามาจำหน ายในประเทศไทยเหม อนก น อาซ โมจ งอยากให เพ อนๆ เข าใจถ งการ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หลักสูตร เทคนิคการสอนงาน วางแผนงาน Coaching & .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## หลักสูตร เทคนิคการสอนงาน วางแผนงาน Coaching & .
+จ ดส มมนาภายในและภายนอกองค กร รวมถ งการพ ฒนาความร ต อเน องทางว ชาช พของผ ทำบ ญช และผ สอบบ ญช จำหน าย หน งส อและวารสารว ชาการด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ถนน 7 ชั่วโคตรก็สร้างไม่เสร็จ! | จั๊ด .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## ถนน 7 ชั่วโคตรก็สร้างไม่เสร็จ! | จั๊ด .
+2 ในการส ญจร ซ งต งแต ในอด ตถ งป จจ บ น ถนนเส นน ม การขยาย ช องทางแต ก ไม เพ ยง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สำนักงานความร่วมมือพัฒนาเศรษฐกิจกับประเทศเพื่อน ](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## สำนักงานความร่วมมือพัฒนาเศรษฐกิจกับประเทศเพื่อน 
+นายพ รเมศร ว ฒ ธรเนต ร กษ รองผ อำนวยการ พร อมด วยคณะผ บร หารและเจ าหน าท สพพ. เข าร วมการฝ กซ อมการเตร ยมความพร อมกรณ เหต ฉ กเฉ น (กรณ อ คค ภ ย) ประจำป 2560 http 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โปรแกรมประมาณราคาถนน คสล.ของทีมงานนักบริหารงานช่าง ](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## โปรแกรมประมาณราคาถนน คสล.ของทีมงานนักบริหารงานช่าง 
+โปรแกรมประมาณราคาถนน คสล.ของท มงานน กบร หารงานช างร นท 61ปร บปร งข อม ลพ นท ฝนตกช กใหม ตามหน งส อ ด วนท ส ด ท กค 0421.5/ว195 ลว. 16 พ.ค. 2559 สำหร บส วนราชการ ร ฐว สาหก จ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 4 การถอดแบบ (Quantities Take-off) - .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## บทที่ 4 การถอดแบบ (Quantities Take-off) - .
+4.1 บทนำ การถอดแบบ เป นข นตอนในการแยกงานก อสร างท งโครงการออกเป นปร มาณเน องานของงานย อยต างๆ ลงในแบบฟอร มสำหร บการประมาณราคาซ งกำหนดให ใช เป น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![พระมหาธาตุ นภเมทนีดล](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## พระมหาธาตุ นภเมทนีดล
+การจะก อสร างพระสถ ปเจด ย ในเขตพ นท อ ทยานแห งชาต ดอยอ นทนนท จำเป นจะต องขออน ญาตต อคณะกรรมการอ ทยานแห งชาต ก อน ในเร องน กองท พอากาศได ม หน งส อ ลงว นท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ขายเครื่องบดค้อนหินอ่อน](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%84%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%AD%E0%B9%88%E0%B8%AD%E0%B8%99.md)
+* [ต้นทุนเครื่องถลุงเหล็กในอินเดีย](%E0%B8%95%E0%B9%89%E0%B8%99%E0%B8%97%E0%B8%B8%E0%B8%99%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%96%E0%B8%A5%E0%B8%B8%E0%B8%87%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องบดกรวยทรายและกรวด](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%94.md)
+* [เครื่องกัดใช้ในโอมาน](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%AD%E0%B8%A1%E0%B8%B2%E0%B8%99.md)
+* [โรงบดในการผลิตปูนซีเมนต์](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C.md)
+* [เครื่องจักรที่มีประสิทธิภาพในการขุดแร่เหล็ก](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%A1%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [การผลิตรายละเอียดกระบวนการไฮโดรเจนไซยาไนด์](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%84%E0%B8%AE%E0%B9%82%E0%B8%94%E0%B8%A3%E0%B9%80%E0%B8%88%E0%B8%99%E0%B9%84%E0%B8%8B%E0%B8%A2%E0%B8%B2%E0%B9%84%E0%B8%99%E0%B8%94%E0%B9%8C.md)
+* [ผู้ให้บริการเครื่องบดกรวยแร่ทองคำในอินโดเนสเซีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B8%9A%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%82%E0%B8%94%E0%B9%80%E0%B8%99%E0%B8%AA%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2.md)
+* [ใบรับรองโรงงานเบนโทไนท์เรย์มอนด์ผลิตในประเทศจีน](%E0%B9%83%E0%B8%9A%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%9A%E0%B8%99%E0%B9%82%E0%B8%97%E0%B9%84%E0%B8%99%E0%B8%97%E0%B9%8C%E0%B9%80%E0%B8%A3%E0%B8%A2%E0%B9%8C%E0%B8%A1%E0%B8%AD%E0%B8%99%E0%B8%94%E0%B9%8C%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B8%88%E0%B8%B5%E0%B8%99.md)
+* [ซื้อเครื่องบดแผ่นยิปซัมขาย](%E0%B8%8B%E0%B8%B7%E0%B9%89%E0%B8%AD%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%9C%E0%B9%88%E0%B8%99%E0%B8%A2%E0%B8%B4%E0%B8%9B%E0%B8%8B%E0%B8%B1%E0%B8%A1%E0%B8%82%E0%B8%B2%E0%B8%A2.md)

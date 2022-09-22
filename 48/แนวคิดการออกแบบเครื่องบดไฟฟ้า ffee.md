@@ -1,0 +1,128 @@
+# แนวคิดการออกแบบเครื่องบดไฟฟ้า ffee
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องชงกาแฟ DeLonghi (41 ภาพ): .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## เครื่องชงกาแฟ DeLonghi (41 ภาพ): .
+หล กการทำงานของเคร องชงกาแฟท ม การออกแบบใด ๆ ก ค อม นอ นน ำและผ านม นผ านช นของกาแฟบดดำเน นการสก ดบ งค บให ม นให รสชาต และค ณสมบ ต ของสารสก ดจากน ำท ม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ระบบควบคุมการเปิด ปิดไฟภายในห้องแบบอัตโนมัติ ES010](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## ระบบควบคุมการเปิด ปิดไฟภายในห้องแบบอัตโนมัติ ES010
+ท ม การเป ด-ป ดอ ตโนม ต ตามความตองการการใชงาน โดยระบบเป ด-ป ด ไฟที่พัฒนาขึ้นนี้ประกอบดวย วงจรแหลงจายไฟฟ้ากระแสตรง วงจร
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายงานการวิจัย การพัฒนาเครื่องบดยาไฟฟ้า Development of .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## รายงานการวิจัย การพัฒนาเครื่องบดยาไฟฟ้า Development of .
+รห สโครงการ 5-1/56 รายงานการว จ ย การพ ฒนาเคร องบดยาไฟฟ า (Development of electric mortar grinding machine)คณะผ ว จ ย อาจารย ล กขณา ไชยนอก ผ ช วยศาสตราจารย ดร.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1. 1 . 3 2. 7 . 3 3. 9 . 3 2 2559.th](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## 1. 1 . 3 2. 7 . 3 3. 9 . 3 2 2559.th
+โครงการเคร องบดแกลบ จ ดท าโดย 1. นาย โชคช ย พาแสง สาขาว ชาช างยนต เลขท 1 ปวช. 3 2. นาย ด ส ต ช างทา สาขาว ชาช างยนต เลขท 7 ปวช. 3
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องบดเนื้อเป็นอุตสาหกรรม อุปกรณ์อุตสาหกรรม ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## เครื่องบดเนื้อเป็นอุตสาหกรรม อุปกรณ์อุตสาหกรรม 
+บทความน อ ท ศให ก บเคร องบดเน ออ ตสาหกรรม อธ บายถ งค ณสมบ ต การออกแบบต วเล อกการกำหนดค าพล งงานและงานท แก ไขโดยอ ปกรณ น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องบดสับอเนกประสงค์ เฮเฟเล่ - Hafelethailand](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## เครื่องบดสับอเนกประสงค์ เฮเฟเล่ - Hafelethailand
+เคร องบดส บอเนก ประสงค เฮเฟเล สำหร บใครท ชอบเข าคร ว การม อ ปกรณ เสร มท สามารถตอบโจทย ได ตามความต องการ ช วยให การเตร ยมหร อ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องนวดข้าวข้าวโพด,การออกแบบแนวคิดใหม่ของ Shell .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## เครื่องนวดข้าวข้าวโพด,การออกแบบแนวคิดใหม่ของ Shell .
+เคร องนวดข าวข าวโพด,การออกแบบแนวค ดใหม ของ Shell Sheller เคร องนวดข าวข าวโพด และเคร องปอกได รวมม ลต ฟ งก ช, ในขณะเด ยวก นเคร องนวดข าวข าวโพดสามารถลอกผ ว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การออกแบบและเทคโนโลยี ม.1-Flip Book Pages 1-50 | .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## การออกแบบและเทคโนโลยี ม.1-Flip Book Pages 1-50 | .
+การออกแบบและเทคโนโลย ม.1 was published by Arunee Chaipicit on . Read the flipbook version of Arunee Chaipicit's การออกแบบและเทคโนโลย ม.1. Get more flip books related to การออกแบบ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การคำนวณโรงงานลูกชิ้น excel แผ่น](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## การคำนวณโรงงานลูกชิ้น excel แผ่น
+การคำนวณสกร ลำเล ยง Excel ค านวณ T Score และต ดเกรดด วย TScoreCal. ค านวณ T Score และ เข ามาช วย โปรแกรมท ยอดน ยมท ใช ในการค านวณค อ Excel แต ผ ใช ต องเร ยนร ว ธ การใช โปรแกรมน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ออกแบบและตกแต่ง - โฮมเมดสำหรับโรงรถ: .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## ออกแบบและตกแต่ง - โฮมเมดสำหรับโรงรถ: .
+ต วเล อกสำหร บโรงจอดรถโฮมเมดต างๆ ไอเด ยจ ดเร ยงโรงรถด วยม อของพวกเขาเอง ม แกดเจ ตใดบ างสำหร บต นแบบบ านท สามารถวางในโรงรถได อาจต องใช เคร องม อและ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แนวคิดเกี่ยวกับการผลิตแป้งมันสำปะหลัง - .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## แนวคิดเกี่ยวกับการผลิตแป้งมันสำปะหลัง - .
+หมายเหต เก ยวก บการผล ตแผนภ ม แป งม นสำปะหล งสำหร บเคร องจ กรผล ตแป งม นสำปะหล ข นตอนท 2 ม นสำปะหล งบด: แตกต างจากค อนแบบด งเด มบดม นสำปะหล งม ผลบดด กว า 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Institute of Dentistry สถาบันทันตกรรม กรมการแพทย์ - .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Institute of Dentistry สถาบันทันตกรรม กรมการแพทย์ - .
+2.3 แนวค ดในการออกแบบสถานให บร การด านท นตกรรมในต างประเทศ (Concept Design) 2.4 แนวคิดในการเคลื่อนย ายคนไข และการใช อุปกรณ ช วยเหล ือผู ป วยที่นั่ง Wheel chair ใน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แนวทางการคิดราคาค่าออกแบบ - Menn Studio](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## แนวทางการคิดราคาค่าออกแบบ - Menn Studio
+ส ปดาห ท แล ว ผมเข ยนถ งหน งส อ Work for Money, Design for Love (ตอนท 3) ถ งเร องการค ดราคา ว า ฝร งก บไทยไม ตรงก นหลายอย าง เลยค ดว าขอเแชร ประสบการณ การค ดราคาค าออกแบบของผม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การพัฒนาระบบสั่งการมาตรวัดไฟฟ้าอัจฉริยะภายใน ](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## การพัฒนาระบบสั่งการมาตรวัดไฟฟ้าอัจฉริยะภายใน 
+อ นเทอร เน ต ออกแบบ และสร างเคร องว ดและส งข อม ลการใช ไฟฟ าภายในองค การผ านการเข าใช บร การการ  การคานวณแบบคลาวด เปร ยบก บกา 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การควบคุมอุปกรณ์ไฟฟ้าผ่านบลูทูธด้วยโทรศ ัพท์ ](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## การควบคุมอุปกรณ์ไฟฟ้าผ่านบลูทูธด้วยโทรศ ัพท์ 
+ประช มวชาการมอบ.ว จ ย คร 5 | งทเอกสารส บเน องจากการประช (Proceeding) ม 165 การเล อกเปล ยนความถ ท ใช ในการต ดต อเองอ ตโนม ต ความสะดวกในการต ดต อระหว างโมด ลบล ท ธก บ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตู้เย็นตกแต่ง: ทำเองด้วยแนวคิดการออกแบบ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## ตู้เย็นตกแต่ง: ทำเองด้วยแนวคิดการออกแบบ
+การตกแต งต เย นเป นทางออกเม อส งเก าไม พอด ก บภายในห องคร วใหม ในกรณ ท ห องคร วม ขนาดเล กและต เย นต องวางในห องโถงหร อแม กระท งในห องพ กหน งย งไม สามารถ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แนวคิดการออกแบบ - ecohouseweb](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## แนวคิดการออกแบบ - ecohouseweb
+© 2013 by ECO HOUSE CO.,LTD. All rights reserved.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 1](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## บทที่ 1
+สร างเคร องผล ตไฟฟ าจากการว งผ านของรถยนต ประกอบดว ยส วนใหญ ๆ 3 ส วน 1. สร้างเครื่องผลิตกระแสไฟฟ้า จากการเคลื่อนที่ของแท่งแม่เหล็กถาวรตัดผ่านขดลวด
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องนวดข้าวข้าวโพด,การออกแบบแนวคิดใหม่ของ .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## เครื่องนวดข้าวข้าวโพด,การออกแบบแนวคิดใหม่ของ .
+เคร องนวดข าวข าวโพด,การออกแบบแนวค ดใหม ของ Shell Sheller เคร องนวดข าวข าวโพด และเคร องปอกได รวมม ลต ฟ งก ช, ในขณะเด ยวก นเคร องนวดข าวข าวโพดสามารถลอกผ ว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รถบด - Case Construction Equipment](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## รถบด - Case Construction Equipment
+รถบดด นของ CASE เข ามาเสร มกล มเคร องจ กรงานก อสร างถนนของเราในป จจ บ น เช นเด ยวก บรถเกล ยด นและรถบ ลโดเซอร และเคร องจ กรเหล าน เก งในแง ของการทำงาน ได 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องบดไฟฟ้าด้วยมือด้วยมือ | meteogelo.club](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## เครื่องบดไฟฟ้าด้วยมือด้วยมือ | meteogelo.club
+เดสก ท อปจ กซอว เป นส งท ขาดไม ได สำหร บเจ าของท เคยช นก บการร บม อก บการบ านด วยต วเขาเอง โดยเฉพาะอย างย งจ กซอว ไฟฟ าเป นส งท ด สำหร บผ อย อาศ ยในภาค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การหาค่าปัจจัยที่เหมาะสมของเครื่องบดเมล็ดข้าวโพด ](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## การหาค่าปัจจัยที่เหมาะสมของเครื่องบดเมล็ดข้าวโพด 
+การบดอาหารส ตว เพ มอ กและ961 ต นพบว าพ นท ส กหรอหายไปเพ มข น15.1 ± 1.5% และ21.8 ± 1.4% ตามล าด บ[3] และการออกแบบและพ ฒนาเพ อ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องขนส่ง/เครื่องลำเลียง/วัสดุสำหรับการขนส่ง ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## เครื่องขนส่ง/เครื่องลำเลียง/วัสดุสำหรับการขนส่ง 
+1) ระบบ AutoStore: ระบบจ ดเก บข อม ลท ม ความสามารถในการขยายท ยอดเย ยมโดยการออกแบบโมด ลของความย ดหย น - การจ ดเก บความหนาแน นส ง, ประหย ดพ นท, เค าโครงฟร 2) ระบบ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 2 เอกสารและงานวิจัยที่เกี่ยวข้อง - CTN Phrae](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## บทที่ 2 เอกสารและงานวิจัยที่เกี่ยวข้อง - CTN Phrae
+5 ของอ ปกรณ น นถ กเม อเท ยบก บไมโครคอนโทรลเลอร ตระก ลอ นๆ ในท องตลาดแลว พวกเขายง ต ง ใช ให Arduino สามารถพ ฒนาโดยโปรแกรมท "แจกฟร " ภายใต เง อนไขในการใช งานล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เครื่องมอนิเตอร์พลังงานไฟฟ้า/เครื่องมอนิเตอร์การ ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## เครื่องมอนิเตอร์พลังงานไฟฟ้า/เครื่องมอนิเตอร์การ 
+It is an important tool used to measure the energy. The energy management system contribute in a significant way to reduce the energy consumption and reduce carbon dioxide. เป นเคร องม อท สำค ญท ใช ตรวจว ดค าพล งงานไฟฟ าของระบบการจ ดการพล งงาน เพ อการลดการใ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![11 เครื่องบดกาแฟอัจฉริยะใน Amazon | 2020](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## 11 เครื่องบดกาแฟอัจฉริยะใน Amazon | 2020
+เคร องบดแบบใช ม ออ กอ นสำหร บผ ท ช นชอบกาแฟท ต องการร บแจ คด วยเช นก น เคร องบด AUKO ม ร ปล กษณ ท บางพกพาสะดวกและมาพร อมก บต วเล อกขนาดบด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ปัจจัยการออกแบบผลิตภัณฑ์ ECO Design - Teerachai .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## ปัจจัยการออกแบบผลิตภัณฑ์ ECO Design - Teerachai .
+หล กการ The Function Complex ก บการออกแบบผล ตภ ณฑ ECO Design The Function Complex มาจากป จจ ยของการออกแบบผล ตภ ณฑ ท น กออกแบบต องคำน งถ งน นเอง แสดงความเช อมโยงการออกแบบผล ตภ ณฑ ห ว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การเพิ่มขึ้นของขยะทำให้ต้องมีแนวคิดการกำจัดขยะ ](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## การเพิ่มขึ้นของขยะทำให้ต้องมีแนวคิดการกำจัดขยะ 
+(2) เตาเผาฟล อ ดไดส เบด (Fluidized Bed Incinerator) เป นการเพ มความเร วให ก บอากาศท ใช ในการเผาไหม ให ส งพอท จะทำให ต วขยะเก ดการลอยต วบนว สด ต วกลางม สภาพเหม อนของไหล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ทฤษฎี การออกแบบสถาปั ตยกรรม | sthapat s - .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## (PDF) ทฤษฎี การออกแบบสถาปั ตยกรรม | sthapat s - .
+ทฤษฎ การออกแบบสถาป ตยกรรม Sthapat S Download PDF Download Full PDF Package This paper A short summary of this paper 0 Full PDFs related to this paper READ PAPER ทฤษฎ การออกแบบสถาป ตยกรรม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [แผนภูมิการไหลของประโยชน์ของการส่งออกเครื่องบดแร่เหล็ก](%E0%B9%81%E0%B8%9C%E0%B8%99%E0%B8%A0%E0%B8%B9%E0%B8%A1%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%84%E0%B8%AB%E0%B8%A5%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%82%E0%B8%A2%E0%B8%8A%E0%B8%99%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AA%E0%B9%88%E0%B8%87%E0%B8%AD%E0%B8%AD%E0%B8%81%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [ppt การวิเคราะห์ห่วงโซ่คุณค่าแร่เหล็ก](ppt%20%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A7%E0%B8%B4%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B2%E0%B8%B0%E0%B8%AB%E0%B9%8C%E0%B8%AB%E0%B9%88%E0%B8%A7%E0%B8%87%E0%B9%82%E0%B8%8B%E0%B9%88%E0%B8%84%E0%B8%B8%E0%B8%93%E0%B8%84%E0%B9%88%E0%B8%B2%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [รายชื่อผู้จำหน่ายหินทรายที่ดีที่สุดในมาเลเซีย](%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%94%E0%B8%B5%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%AA%E0%B8%B8%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%A1%E0%B8%B2%E0%B9%80%E0%B8%A5%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2.md)
+* [duoling การขุดแร่เหล็กส่งผลกระทบต่ออุปกรณ์](duoling%20%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%AA%E0%B9%88%E0%B8%87%E0%B8%9C%E0%B8%A5%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%9A%E0%B8%95%E0%B9%88%E0%B8%AD%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C.md)
+* [ขายเครื่องบดโดโลไมต์ขนาดเล็กยูกันดา](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%82%E0%B8%94%E0%B9%82%E0%B8%A5%E0%B9%84%E0%B8%A1%E0%B8%95%E0%B9%8C%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%A2%E0%B8%B9%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%94%E0%B8%B2.md)
+* [เรย์มอนด์มิลล์สำหรับหินปูนแมกนีเซีย](%E0%B9%80%E0%B8%A3%E0%B8%A2%E0%B9%8C%E0%B8%A1%E0%B8%AD%E0%B8%99%E0%B8%94%E0%B9%8C%E0%B8%A1%E0%B8%B4%E0%B8%A5%E0%B8%A5%E0%B9%8C%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B9%81%E0%B8%A1%E0%B8%81%E0%B8%99%E0%B8%B5%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2.md)
+* [ข้อดีและข้อเสียของเครื่องบดแบบพกพา](%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%94%E0%B8%B5%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B9%80%E0%B8%AA%E0%B8%B5%E0%B8%A2%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%9E%E0%B8%81%E0%B8%9E%E0%B8%B2.md)
+* [ลูกบอลโลหะที่ใช้ในโรงงานผลิตลูกปัด](%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%AD%E0%B8%A5%E0%B9%82%E0%B8%A5%E0%B8%AB%E0%B8%B0%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9B%E0%B8%B1%E0%B8%94.md)
+* [ผู้ผลิตขวดเซรามิกลูกบดในอินเดีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%82%E0%B8%A7%E0%B8%94%E0%B9%80%E0%B8%8B%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%B4%E0%B8%81%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [โรงงานเครื่องบดโลหะให้เครื่องบดผลกระทบ](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%82%E0%B8%A5%E0%B8%AB%E0%B8%B0%E0%B9%83%E0%B8%AB%E0%B9%89%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9C%E0%B8%A5%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%9A.md)

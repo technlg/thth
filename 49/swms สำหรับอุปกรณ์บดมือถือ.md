@@ -1,0 +1,56 @@
+# swms สำหรับอุปกรณ์บดมือถือ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การชำระเงิน บริการส่ง SMS ผ่านเน็ตเข้ามือถือ | ส่ง ](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## การชำระเงิน บริการส่ง SMS ผ่านเน็ตเข้ามือถือ | ส่ง 
+Plan จำนวนเครด ตข อความ SMS ท ส งได / ราคา เฉล ยข อความละ (บาท) Plan 1 135 ข อความ / 100 บาท 0.74 Plan 2 450 ข อความ / 300 บาท 0.67 Plan 3 800 ข อความ / 500 บาท
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มุมฮาภาษาเซฟตี้](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## มุมฮาภาษาเซฟตี้
+<div class="separator" style="clear: both; text-align: center;"><a href="https://4.bp.blogspot/-SC-oNGaUikg/W9bWmeGA9BI/AAAAAAAAC74 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มีใครรับ SMS ข่าวทางมือถือบ้างมั๊ยครับ](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## มีใครรับ SMS ข่าวทางมือถือบ้างมั๊ยครับ
+ผมร บ SMS ข าวจากเนช นท นข าวคร บ ได ร บว นละหลายข าวเหม อนก น จ ายเด อนละ 52.43 บาท ข าวก อ พเดทด คร บ เพราะผมไม ค อยม เวลาอ านหน งส อพ มพ ก อาศ ยร บข าว
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สมบูรณ์ ซารัมย์ ผอ.สสก.4 จากข้าราชการดีเด่นสู่ ](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## สมบูรณ์ ซารัมย์ ผอ.สสก.4 จากข้าราชการดีเด่นสู่ 
+สมบ รณ ซาร มย ผอ.สสก.4 จากข าราชการด เด นส ผ บร หารม ออาช พ อาช พร บราชการ เป นอาช พท หลายคนไฝ ฝ น แม ค าตอบแทนไม ส ง แต ม ความม นคง และม เพ ยงไม ก คน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข่าวมือถือ ข่าวไอที - Siamphone News - [MWC] .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## ข่าวมือถือ ข่าวไอที - Siamphone News - [MWC] .
+คว นหลงจากงาน Mobile World Congress 2014 ท ผ านพ นไปแล ว ลองย อนกล บมาอ านบทความรำล กภาพว นเก าๆ ท เคยผ านมาของงาน MWC ในช วงห าป ก อน แม ว าจะเป
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข่าวมือถือ ข่าวไอที - Siamphone News - .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## ข่าวมือถือ ข่าวไอที - Siamphone News - .
+มหาว ทยาล ยรามคำแหง โดย ผ ช วยศาสตราจารย ว ฒ ศ กด ลาภเจร ญทร พย อธ การบด ฯ และนายชาตร น ลน ำเพ ชร ผ อำนวยการสถาบ นคอมพ วเตอร จ บม อ กล มทร โดย นายอาณ ต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MMS มอบโปรสุดพิเศษ ส่งท้ายปีเก่าต้อนรับปีใหม่ .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## MMS มอบโปรสุดพิเศษ ส่งท้ายปีเก่าต้อนรับปีใหม่ .
+พร อมก นน ย งได จ ดรายการโปรโมช นอ นๆ ได แก เปล ยนยาง 3 แถม 1(เฉพาะย ห อท ร วมรายการ ) สามารถผ อนอ ตราดอกเบ ย 0% ได นาน 10 เด อน, น ำม นเคร อง Bosch, โททาล(Total ), Elf ฟร ไส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แหวนรองโลหะ - ความหนา + -0.10 และ + -0.01 มม. / ID (H7) .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## แหวนรองโลหะ - ความหนา + -0.10 และ + -0.01 มม. / ID (H7) .
+แหวนรองโลหะ - ความหนา + -0.10 และ + -0.01 มม. / ID (H7) และ OD (g6 / h7) เล อกได จาก MISUMI MISUMI ม 2600 แบรนด, 9 ล าน ผล ตภ ณฑ ของ ช นส วนเคร องจ กรอ ตโนม ต, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สำหรับท่อที่มีเส้นผ่าศูนย์กลางขนาด 3 เมตร (120 นิ้ว)](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## สำหรับท่อที่มีเส้นผ่าศูนย์กลางขนาด 3 เมตร (120 นิ้ว)
+B & D Ingenieursburo BV สำหร บย โรป, ตะว นออกไกลและแอฟร กา (swnl@scalewatcher) Scalewatcher (Thailand) Co., Ltd, สำหรับไทยแลนด์ (swth@scalewatcher)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โปรแกรมสำเร็จรูป WMS – "WareNavi Fine" | Daifuku .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## โปรแกรมสำเร็จรูป WMS – "WareNavi Fine" | Daifuku .
+Daifuku – "WareNavi Fine" โปรแกรมสำเร จร ป WMS เป นผล ตภ ณฑ ท สร างข นจากการรวบรวมประสบการณ ในโครงการขนย ายว สด กว า 6,000 แห ง โปรแกรมถ กออกแบบมาเพ อควบค มด แลท กๆ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข่าวไอที - Thaiware](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## ข่าวไอที - Thaiware
+ข าวม อถ อ ข าวแกดเจ ต และ อ ปกรณ เสร ม ข าวคอมพ วเตอร และ โน ตบ ค ข าวอ ปกรณ ไอท และ เคร องใช ไฟฟ า ข าวอ นเตอร เน ต และ เน ตเว ร ค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [รายงานโครงการโรงงานแยกแม่เหล็กแร่เหล็ก](%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%82%E0%B8%84%E0%B8%A3%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%A2%E0%B8%81%E0%B9%81%E0%B8%A1%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [เครื่องบดอัดแบบตีนตะขาบ](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AD%E0%B8%B1%E0%B8%94%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%95%E0%B8%B5%E0%B8%99%E0%B8%95%E0%B8%B0%E0%B8%82%E0%B8%B2%E0%B8%9A.md)
+* [เครื่องหั่นฟางราคาเท่าไหร่](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%B1%E0%B9%88%E0%B8%99%E0%B8%9F%E0%B8%B2%E0%B8%87%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B9%80%E0%B8%97%E0%B9%88%E0%B8%B2%E0%B9%84%E0%B8%AB%E0%B8%A3%E0%B9%88.md)
+* [ซ่อมเครื่องบดกรวยถ่านหินในอินเดีย](%E0%B8%8B%E0%B9%88%E0%B8%AD%E0%B8%A1%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [บรูไนหัวสั้นกรวยบดซ็อกเก็ตเหล็ก](%E0%B8%9A%E0%B8%A3%E0%B8%B9%E0%B9%84%E0%B8%99%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B8%AA%E0%B8%B1%E0%B9%89%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%E0%B8%8B%E0%B9%87%E0%B8%AD%E0%B8%81%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [เค้าโครงสำหรับการออกแบบโรงงานบดหินบดในอินเดีย](%E0%B9%80%E0%B8%84%E0%B9%89%E0%B8%B2%E0%B9%82%E0%B8%84%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AD%E0%B8%AD%E0%B8%81%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [รายการบำรุงรักษาเครื่องบดเมลิไลท์](%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%B3%E0%B8%A3%E0%B8%B8%E0%B8%87%E0%B8%A3%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%B2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%A1%E0%B8%A5%E0%B8%B4%E0%B9%84%E0%B8%A5%E0%B8%97%E0%B9%8C.md)
+* [เครื่องลอยการทำเหมืองแร่](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%A5%E0%B8%AD%E0%B8%A2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88.md)
+* [โรงงานผลิตลูกเริ่มดำเนินการ](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B9%80%E0%B8%A3%E0%B8%B4%E0%B9%88%E0%B8%A1%E0%B8%94%E0%B8%B3%E0%B9%80%E0%B8%99%E0%B8%B4%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3.md)
+* [รถผู้ผลิตกรามบด](%E0%B8%A3%E0%B8%96%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%9A%E0%B8%94.md)

@@ -1,0 +1,52 @@
+# กระบวนการผลิตแมงกานีส assmang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การประชุมชี้แจง " ข้อบังคับและประกาศ](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## การประชุมชี้แจง " ข้อบังคับและประกาศ
+การประช มช แจง "ข อบ งค บและประกาศ Process Safety Management (PSM) ของ กนอ. 1 กองความปลอดภ ยและอาช วอนาม ยห วข อการน าเสนอ ข อบ งค บคณะกรรมการการน คมอ ตสาหกรรมแห งประเทศ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สำนักงานคณะกรรมการอาหารและยาของสหรัฐอเมริกา ออก ](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## สำนักงานคณะกรรมการอาหารและยาของสหรัฐอเมริกา ออก 
+ประกอบด วย กระบวนการผล ต การฝ กอบรมพน กงาน การทำความ-สะอาด และด แลร กษาเคร องม อและโรงงาน การใช เคร องม อทดสอบ การด แล ว ตถ ด บ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แผนการสุ่มตัวอย่างส าหรับการควบคุมคุณภาพ](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## แผนการสุ่มตัวอย่างส าหรับการควบคุมคุณภาพ
+ค าเฉล ยของกระบวนการหร อส ดส วนของเส ย ซ งส ดส วนของเส ยจะม ค าส งส ดเท าก บ 3.00% แต ถ ามากกว าน ให
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กระบวนการเข้าสู่ตลาดแรงงานของแรงงานต่างด้าว ](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## กระบวนการเข้าสู่ตลาดแรงงานของแรงงานต่างด้าว 
+กระบวนการเขาส ตลาดแรงงานของแรงงานตางดาวส ญชาต พมาในอ ตสาหกรรม หวงโซอ ปทานการผล ตอาหารทะเลแปรร ป จ งหว ดสม ทรสาคร 20 2. 5
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายงานฉบับสมบูรณ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## รายงานฉบับสมบูรณ
+กระบวนการผล ต ไปจนถ งโครงสร างส ดท าย (Final Structure) ตามท ก าหนดไว ก จะส งผลให สามารถท าการ ผล ตภ ณฑ เหล กท ม ความแข งแรงส ง ม สมบ ต สม า 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 3 ระบบการผลิต และการจัดทำสายการผลิตให้  - .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## บทที่ 3 ระบบการผลิต และการจัดทำสายการผลิตให้  - .
+ระบบการผล ต และการจ ดทำสายการผล ตให สมด ลย (Production System & Assembly Line Balancing) ในการผล ตโดยท วไป จะประกอบไปด วย 3 ส วนด วยก น ค อ ป จจ ยการผล ต (Input) ได แก คน (Man) ว .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายงานการผลิตสื่อและนวัตกรรม ทางการศึกษา](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## รายงานการผลิตสื่อและนวัตกรรม ทางการศึกษา
+รายงานการผล ต ส อและนว ตกรรม ทางการศ กษา สมมต ฐานในการศ กษา เด กปฐมว ยท ได ร บการจ ดประสบการณ การเร ยนร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กระบวนการผลิตและเผยแพร่สื่อสิ่งพิมพ์เพื่อการ ](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## กระบวนการผลิตและเผยแพร่สื่อสิ่งพิมพ์เพื่อการ 
+กระบวนการผล ตและเผยแพร ส อส งพ มพ เพ อการประชาส มพ นธ อาคารช ด "ด ออสการ เพชรเกษม 58" ของบร ษ ท โปรต า พร อพเพอร ต จำก ด
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กระบวนการผลิตสื่อประกอบการนาเสนอเพื่อ ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## กระบวนการผลิตสื่อประกอบการนาเสนอเพื่อ 
+กระบวนการผล ตส อประกอบการนาเสนอเพ อประชาส มพ นธ ข อม ลขององค กร สถาบ นสอนภาษา BRIT Language Centre ประจ าป 2560 Media production with the presentation for public relation 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณะ - DIW](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## ลักษณะ - DIW
+1. หล กเกณฑ ทางกฎหมาย การพ จารณาออกใบอน ญาตประกอบก จการโรงงานหร อขยายโรงงานสำหร บโรงงานผล ตป นซ เมนต จะต องปฏ บ ต ตาม พ.ร.บ. โรงงาน พ.ศ. 2535 พ.ร.บ. การผ งเม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [สิทธิบัตรเครื่องบดค้อนโรงสีเครื่องเทศ](%E0%B8%AA%E0%B8%B4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%A3%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%84%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%97%E0%B8%A8.md)
+* [โรงงานบดกรามหินในซาอุดีอาระเบีย](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B2%E0%B8%AD%E0%B8%B8%E0%B8%94%E0%B8%B5%E0%B8%AD%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2.md)
+* [การแปรรูปถ่านหินขนาดเล็ก](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [ดาวน์โหลดข้อมูลจำเพาะของกรวยบด](%E0%B8%94%E0%B8%B2%E0%B8%A7%E0%B8%99%E0%B9%8C%E0%B9%82%E0%B8%AB%E0%B8%A5%E0%B8%94%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%88%E0%B8%B3%E0%B9%80%E0%B8%9E%E0%B8%B2%E0%B8%B0%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94.md)
+* [โรงบดแร่ทองแดงในการบดลูกกลิ้งชิลี](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%81%E0%B8%A5%E0%B8%B4%E0%B9%89%E0%B8%87%E0%B8%8A%E0%B8%B4%E0%B8%A5%E0%B8%B5.md)
+* [เป็นตะกั่วที่ใช้ในโรงสีเหมืองทอง](%E0%B9%80%E0%B8%9B%E0%B9%87%E0%B8%99%E0%B8%95%E0%B8%B0%E0%B8%81%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%97%E0%B8%AD%E0%B8%87.md)
+* [ข้อมูลจำเพาะทั่วไปของฝุ่นหินบดไล่ระดับ](%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%88%E0%B8%B3%E0%B9%80%E0%B8%9E%E0%B8%B2%E0%B8%B0%E0%B8%97%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B9%84%E0%B8%9B%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9D%E0%B8%B8%E0%B9%88%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B9%84%E0%B8%A5%E0%B9%88%E0%B8%A3%E0%B8%B0%E0%B8%94%E0%B8%B1%E0%B8%9A.md)
+* [คุณทำลูกบดได้อย่างไร](%E0%B8%84%E0%B8%B8%E0%B8%93%E0%B8%97%E0%B8%B3%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B9%84%E0%B8%94%E0%B9%89%E0%B8%AD%E0%B8%A2%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%84%E0%B8%A3.md)
+* [โรงงานผลิตบดในอินเดีย](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องบดปูนเม็ดที่ใช้ในโรงงานแปรรูปปูนเม็ด](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B9%80%E0%B8%A1%E0%B9%87%E0%B8%94%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B9%80%E0%B8%A1%E0%B9%87%E0%B8%94.md)

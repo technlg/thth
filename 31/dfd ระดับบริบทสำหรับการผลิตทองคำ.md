@@ -1,0 +1,64 @@
+# dfd ระดับบริบทสำหรับการผลิตทองคำ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทสรุปสำหรับผู้บริหาร - DBD](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## บทสรุปสำหรับผู้บริหาร - DBD
+การว จ ยคร งน ใช ว ธ การเก บรวบรวมข อม ลโดยการส มภาษณ แบบเจาะล ก โดยกล มต วอย างประกอบด วย 3 กล ม ค อ 1) ผ ประกอบการต างด าวท เป นค ส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DFD (Data Flow Diagram) - Apinya Warakum](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## DFD (Data Flow Diagram) - Apinya Warakum
+DFD Level 1 Process 8 : การ ชำระเง น ภาพท 3.10 DFD Level 1 Process 8 : การชำระเง น DFD Level 1 Process 9 : แจ งการชำระเง น ภาพท 3.11 DFD Level 1 Process 9 : แจ งการชำระเง น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หน่วยที่ 4 การออกแบบระบบงาน - การวิเคราะห์และออกแบบ ](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## หน่วยที่ 4 การออกแบบระบบงาน - การวิเคราะห์และออกแบบ 
+แผนภาพกระแสข อม ล (DFD) เป นเคร องม อท ใช ก นอย างแพร หลายในการเข ยนแบบระบบใหม โดยเฉพาะก บระบบท "หน าท "ของระบบม ความสำค ญและม ความสล บซ บซ อนมากกว าข 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตัวอย่างงานบทที่ 3 DFD Diagram - SlideShare](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ตัวอย่างงานบทที่ 3 DFD Diagram - SlideShare
+19/9/2012· ต วอย างงานบทท 3 DFD Diagram 1. 43 บทท 3 ข น ตอนว ธ ก ารดำา เน น การ ในการพ ฒนาระบบบร หารงานบ คคล ผ านเคร อข ายอ นทราเน ตกรณ ศ กษา ร านอาหารบ านดวงแก ว ร สอร ท ให บรรล ว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การตรวจสอบประสิทธิภาพการทํางานระบบบําบัดนํ้า เสีย ](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## การตรวจสอบประสิทธิภาพการทํางานระบบบําบัดนํ้า เสีย 
+การตรวจสอบประส ทธ ภาพการท างานระบบบ าบ ดน า เส ยของอาคารและท ด นจ ดสรร ระบบบ าบ ดน าเส ยของอาคารและท ด นจ ดสรร 2. ระบบบ าบ ดน าเส ยข นท
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การย้าย ค่าเฉลี่ย Labview Fpga - Blogger](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## การย้าย ค่าเฉลี่ย Labview Fpga - Blogger
+ต วเล อกในทองคำและเง น ETFs. The การถ อกำเน ดของกองท น ETF แลกเปล ยนได เป ดต วย คใหม สำหร บน กลงท นในสม ยก อนถ าน กลงท นต องการห นผลงานของห นขนาดเล กฝาหร อห นข 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proceedings_10-11_August by Poonsri Vate-U-Lan - Issuu](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Proceedings_10-11_August by Poonsri Vate-U-Lan - Issuu
+"Enhancing the Quality of e-Learning" การประชุมวิชาการระดับชาติด านอีเลิร นนิง 2553 วันที่ 10-11 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ระบบการให้บริการออกหนังสือรับรองถิ่นกำเนิดสินค้า ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## ระบบการให้บริการออกหนังสือรับรองถิ่นกำเนิดสินค้า 
+การปร บปร งแบบคำขอ Form D ATIGA เพ อเช อมโยง ASW การเชื่อมโยงข้อมูล e-Form D กับระบบ ASW แบบขอรับการตรวจ 01-24
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DFD Level 1 - ระบบบริหารจัดการพัสดุ](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## DFD Level 1 - ระบบบริหารจัดการพัสดุ
+DFD Level 0 DFD Level 1 DFD Level 2 Entity Relationship Diagram ER-Diagram Table Data Dictionary Data Dictionary User Interface หน าจอหล ก หน าจอการส งซ อพ สด หน าจอการร บพ สด หน าจอการ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| DBD : กรมพัฒนาธุรกิจการค้า](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## | DBD : กรมพัฒนาธุรกิจการค้า
+การเป ดเผยการใช จ ายเง นหร อทร พย ส นของหน วยงานของร ฐให ส อมวลชนฯ แผนดำเนินธุรกิจอย่างต่อเนื่องฯ (BCP) ของกรมพัฒนาธุรกิจการค้า
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DFD comment สำหรับระบบรับเงิน (ข่าย thaiall)](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## DFD comment สำหรับระบบรับเงิน (ข่าย thaiall)
+DFD 2.1 และ 2.2 - นำ 2.1 มาแตกได เป นร บเง นค าลงทะเบ ยน ผมว าไม สมเหต ผล เพราะน าจะแสดงงานด านการประมวลผลส กหน อยนะคร บ เช น ตรวจสอบข อม ลต าง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตัวเลือกไบนารี สุไหงโก-ลก: July 2017](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ตัวเลือกไบนารี สุไหงโก-ลก: July 2017
+Monday, 31 July 2017
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เล่ม ๑๓๑ ตอนพิเศษ ๑๒๗ ง ราชกิจจานุเบกษา ๘ .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## เล่ม ๑๓๑ ตอนพิเศษ ๑๒๗ ง ราชกิจจานุเบกษา ๘ .
+หน า ๑๗ เล ม ๑๓๑ ตอนพ เศษ ๑๒๗ ง ราชก จจาน เบกษา ๘ กรกฎาคม ๒๕๕๗ (๔) ผลการตรวจค ณสมบ ต ทางด านถ นก าเน ดของส นค าท กรมการค าตางประเทศได ร บรองผล
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เครื่องลักษณนามเกลียวในมองโกเลีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%99%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%81%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%A7%E0%B9%83%E0%B8%99%E0%B8%A1%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%81%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2.md)
+* [ลำดับการสร้างของสายพานลำเลียง](%E0%B8%A5%E0%B8%B3%E0%B8%94%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AA%E0%B8%A3%E0%B9%89%E0%B8%B2%E0%B8%87%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87.md)
+* [ราคาตัวคั่นแม่เหล็กเปียกความเข้มแม่เหล็กสูงสำหรับแร่เหล็ก](%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B8%95%E0%B8%B1%E0%B8%A7%E0%B8%84%E0%B8%B1%E0%B9%88%E0%B8%99%E0%B9%81%E0%B8%A1%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%80%E0%B8%9B%E0%B8%B5%E0%B8%A2%E0%B8%81%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%82%E0%B9%89%E0%B8%A1%E0%B9%81%E0%B8%A1%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%AA%E0%B8%B9%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [ผู้ผลิตเครื่องบดหินมาเลเซีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B2%E0%B9%80%E0%B8%A5%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2.md)
+* [ขายเครื่องบดหินในปัญจาบ](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%B1%E0%B8%8D%E0%B8%88%E0%B8%B2%E0%B8%9A.md)
+* [ราคาโรงงานบดเคลื่อนย้ายได้ในไนจีเรีย](%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%84%E0%B8%A5%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%A2%E0%B9%89%E0%B8%B2%E0%B8%A2%E0%B9%84%E0%B8%94%E0%B9%89%E0%B9%83%E0%B8%99%E0%B9%84%E0%B8%99%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)
+* [ใหม่ xa f ติดตามเครื่องบด](%E0%B9%83%E0%B8%AB%E0%B8%A1%E0%B9%88%20xa%20f%20%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94.md)
+* [โรงงานผลิตลูกสำหรับโรงงานผลิตลูกเปียกปูนขาว](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B9%80%E0%B8%9B%E0%B8%B5%E0%B8%A2%E0%B8%81%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%82%E0%B8%B2%E0%B8%A7.md)
+* [วิธีการสกัดฝุ่นจากโรงงานผลิตลูกบอล](%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AA%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B8%9D%E0%B8%B8%E0%B9%88%E0%B8%99%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%AD%E0%B8%A5.md)
+* [ขายโรงบดในฮาแรร์](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AE%E0%B8%B2%E0%B9%81%E0%B8%A3%E0%B8%A3%E0%B9%8C.md)

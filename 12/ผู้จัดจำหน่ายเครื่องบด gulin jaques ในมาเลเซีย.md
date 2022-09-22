@@ -1,0 +1,76 @@
+# ผู้จัดจำหน่ายเครื่องบด gulin jaques ในมาเลเซีย
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(หน้า 5) รับออกแบบ/รับผลิต/รับกลึง/รับประกอบ บริษัท](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## (หน้า 5) รับออกแบบ/รับผลิต/รับกลึง/รับประกอบ บริษัท
+บร ษ ท เอ.บ .เอส. ฮ ตแอนด เฟอร เนซ จำก ด (A.B.S. HEAT&FURNACE CO., LTD.) ได เร มก อต งข นเม อป พ.ศ.2536 (ค.ศ.1993) และได ทำการผล ตฮ ตเตอร เพ อให บร การแก ล กค า ซ งได แก โรงงานอ ตสาหกรรมต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หินปูนราคากรวยบดแบบพกพาในประเทศไนจีเรีย](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## หินปูนราคากรวยบดแบบพกพาในประเทศไนจีเรีย
+กรามห นป นบด โดโลไมต บดผลกระทบแบบพกพาให เช าแองโกลา ประเทศจ น Mainland ใช ในการบดกรวย3 iso9001 2000ร บรอง อ นๆ ร บราคาs เหม องห นป น - ผ ผล ต ซ พพลายเออร และผ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผู้ผลิตในจีน Bulk Thickener Guar ผงเค้ก CAS ](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## ผู้ผลิตในจีน Bulk Thickener Guar ผงเค้ก CAS 
+China Bulk Thickener Guar ผงเค ก CAS ก บการขายส งท ม ค ณภาพส งผ ผล ตและผ จ ดจำหน ายช นนำ Bulk Thickener Guar ผงเค ก CAS ค นหา 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การซื้อขายตัวเลือกไบนารีปลอดภัย กำแพงเพชร](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## การซื้อขายตัวเลือกไบนารีปลอดภัย กำแพงเพชร
+เง อนไขการเทรดด งการสำรวจโดย US Bureau of Labor Statistics เพ อช วยในการว ดตำแหน งงานว างเก บข อม ลจากนายจ างจำนวนเง นส งส ดท สหร ฐอเมร กาสามารถก ได เพดานหน ถ กสร างข 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บดกราม-ผู้ผลิต-ผู้จัดหา บดผลกระทบบดกรวยบดมือถือ .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## บดกราม-ผู้ผลิต-ผู้จัดหา บดผลกระทบบดกรวยบดมือถือ .
+เซ ยงไฮ ส ดยอดการทำเหม องแร และการก อสร างเคร องจ กรcoของ, จำก ดของเป นส ง- เทคโนโลย, กล มว ศวกรรมท ม ผล ตภ ณฑ ท ท นสม ยและโลก- ตำแหน งผ นำในการบด, บด, และอ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข้อมูลบริษัทจดทะเบียน - บริษัท บี.กริม เพาเวอร์ .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ข้อมูลบริษัทจดทะเบียน - บริษัท บี.กริม เพาเวอร์ .
+ผ ถ อห นรายใหญ 10 อ นด บแรก(@31 ส.ค. 2563) จำนวนห น % 1. B. Grimm Power (Singapore) Pte. Ltd. 794,002,000 30.46 2. นาย ฮาราลด ล งค 633,399,700 24.30 3. บร ษ ท บ .กร ม จอยน เว นเจอร โฮลด ง จำก ด
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Power Magazine issue95 by KingPowerOfficial - Issuu](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Power Magazine issue95 by KingPowerOfficial - Issuu
+00 Contents Power Magazine Issue 95 / December 2013 - January 2014 POWER MAGAZINE VARIETY December 2013-January 2014 020 The Greatest King H o n o u r .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แหล่งจำหน่าย เครื่องใช้สํานักงาน อุปกรณ์สำนักงาน](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## แหล่งจำหน่าย เครื่องใช้สํานักงาน อุปกรณ์สำนักงาน
+เคร องเจ ยร ใน เคร อง ข ดป ดเงา ไขควงไฟฟ า บ อกไฟฟ า กรรไกรไฟฟ า  แพลเลทพลาสต ก จ ด เก บแบบหน าเด ยว แพลเลทพลาสต ก จ ดเก บแบบสองหน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บดกรามถ่านหินขนาดเล็กสำหรับการเช่าในประเทศไนจีเรีย](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## บดกรามถ่านหินขนาดเล็กสำหรับการเช่าในประเทศไนจีเรีย
+ห นบดกรามในต รก ส งซ อข นต ำ 1 ช น machine co Ltd · Labอ ปกรณ บด บดกรามขนาดเล กบดห นสำหร บห องปฏ บ ต การ China เคร องบดกรามห นเพ อ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผู้ผลิตในจีน 750 .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ผู้ผลิตในจีน 750 .
+Ningxia Baishi Hengxing Food Technology Co., Ltd. [Ningxia,China] ประเภทธ รก จ: Distributor / Wholesaler, บร ษ ท การค า, ผ ผล ต, อ น ๆ ตลาดหล ก: อเมร กา, เอเช ย, ย .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(หน้า 13) ประเทศไทย บริษัท - TECH DIR](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## (หน้า 13) ประเทศไทย บริษัท - TECH DIR
+1. ให บร การระบบจ ดการและควบค มพล งงาน(GreenTALK) โดยสามารถตรวจสอบและมองเห นการใช พล งงานภายในโรงงานได ม ยอดต ดต งในประเทศญ ป นมากว า450 ระบบ นอกจากน ย ง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผู้ผลิตในจีน กล่องบรรจุภัณฑ์สร้อยข้อมือ ](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## ผู้ผลิตในจีน กล่องบรรจุภัณฑ์สร้อยข้อมือ 
+Liyang Paper Products Co., Ltd. [Guangdong,China] ประเภทธ รก จ:บร ษ ท การค า, ผ ผล ต ตลาดหล ก: แอฟร กา, อเมร กา, เอเช ย, แคร บเบ ยน, ย โรปตะว นออก, ย โรป, ตะว นออกกลาง, ย โรปเหน อ, โอเช ยเน ย 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โดโลไมต์โม่มือถือ](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## โดโลไมต์โม่มือถือ
+บดกรามขายใน gulin บดกรามเพ อขาย. บดกรามเพ อขาย. 3. กาแฟสด ผ รบมอบอานาจใหลงนามในสญญาแทนอธบด กรมทฒนาทสงงานทดแทนและอน รกษ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TNR : Annual Report 2017 by ar.tnr - Issuu](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## TNR : Annual Report 2017 by ar.tnr - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GULF .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## GULF .
+16/11/2020· ท งน ห นก ด งกล าวได เสนอขายต อผ ลงท นสถาบ นและผ ลงท นรายใหญ ในช วงว นท 23–24 ม.ค. 2562 และจ ดออกห นก ในว นท 25 ม.ค. 2562 ท ผ านมา โดยม ธนาคารกร งเทพ จำก ด (มหาชน) ธนาคา 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กรวยบดขายอาร์เจนตินา](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## กรวยบดขายอาร์เจนตินา
+ท ใช กรวยบดรวมก นเพ อขาย 10 เคร องชงกาแฟสด แนว Slow life ยอดน ยม ของคอกาแฟ . เคร องย อยว สด แบบกรวย ท ใช บดห นม อสองเม กซ โก ขายรถรถบดเด นตาม ร นBW75s ม อสองญ ป น บดอ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [วิธีการผลิตลูกบดหินแกรนิตเทียม](%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%97%E0%B8%B5%E0%B8%A2%E0%B8%A1.md)
+* [ขายเครื่องบดหินมือถือแร่วานาเดียม](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%A7%E0%B8%B2%E0%B8%99%E0%B8%B2%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2%E0%B8%A1.md)
+* [เครื่องจักรสำหรับกระบวนการผลิตหินสำหรับขายในสหรัฐอเมริกา](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%AA%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B8%AD%E0%B9%80%E0%B8%A1%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2.md)
+* [มือถือจีนมือถือบดหิน](%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%88%E0%B8%B5%E0%B8%99%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [ถังบดกรามอุตสาหกรรม](%E0%B8%96%E0%B8%B1%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%AD%E0%B8%B8%E0%B8%95%E0%B8%AA%E0%B8%B2%E0%B8%AB%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1.md)
+* [2015 เครื่องบดไฮดรอลิกแบบไฮดรอลิกยอดนิยม](2015%20%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%84%E0%B8%AE%E0%B8%94%E0%B8%A3%E0%B8%AD%E0%B8%A5%E0%B8%B4%E0%B8%81%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B9%84%E0%B8%AE%E0%B8%94%E0%B8%A3%E0%B8%AD%E0%B8%A5%E0%B8%B4%E0%B8%81%E0%B8%A2%E0%B8%AD%E0%B8%94%E0%B8%99%E0%B8%B4%E0%B8%A2%E0%B8%A1.md)
+* [หัวเกลียวสำหรับเครื่องแปรรูปทอง](%E0%B8%AB%E0%B8%B1%E0%B8%A7%E0%B9%80%E0%B8%81%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%A7%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%97%E0%B8%AD%E0%B8%87.md)
+* [รัฐแอริโซนาทิ้งสถานที่ขุดทอง](%E0%B8%A3%E0%B8%B1%E0%B8%90%E0%B9%81%E0%B8%AD%E0%B8%A3%E0%B8%B4%E0%B9%82%E0%B8%8B%E0%B8%99%E0%B8%B2%E0%B8%97%E0%B8%B4%E0%B9%89%E0%B8%87%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87.md)
+* [ระบบอัตโนมัติของโรงงานผลิตเหล็กลวด](%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%9A%E0%B8%AD%E0%B8%B1%E0%B8%95%E0%B9%82%E0%B8%99%E0%B8%A1%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%A5%E0%B8%A7%E0%B8%94.md)
+* [ซัพพลายเออร์เครื่องบดถ่านในอินเดีย](%E0%B8%8B%E0%B8%B1%E0%B8%9E%E0%B8%9E%E0%B8%A5%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%AD%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)

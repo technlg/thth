@@ -1,0 +1,52 @@
+# โรงสีค้อน prosedur แบบมาตรฐานโอเปร่า
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แบบรายงานโครงการอบรมหลักสูตรประกาศนียบัตรผู้ ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## แบบรายงานโครงการอบรมหลักสูตรประกาศนียบัตรผู้ 
+แบบรายงานโครงการอบรมหล กส ตรประกาศน ยบ ตรผ ตรวจสอบภายใน (Certified Government Internal Auditor - CGIA) ประจ าป งบประมาณ พ.ศ. ๒๕๖๑ ๑. ข อม ลส วนต ว
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แบบศาสนสถาน](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## แบบศาสนสถาน
+แบบมาตรฐานพ ทธศาสนสถาน 2 แบบมาตรฐานพ ทธศาสนสถาน 3 ศาสนาคร สต โบสถ คร สต ขนาดใหญ โบสถ คร สต ขนาดกลาง โบสถ คร สต ขนาดเล ก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการสอบบญชัีรหสั 300](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## มาตรฐานการสอบบญชัีรหสั 300
+3. มาตรฐานการสอบบ ญช ฉบ บน ให ถ อปฏ บ ต ก บการตรวจสอบงบการเง นส าหร บรอบบ ญช ท เร ม ในหร อหล งว นท 1 มกราคม พ.ศ. 2555 สภาว ชาช พบ ญช ในพระ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการสอบบัญชี รหัส 720 (ปรับปรุง) ความรับผิดชอบ ](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## มาตรฐานการสอบบัญชี รหัส 720 (ปรับปรุง) ความรับผิดชอบ 
+มาตรฐานการสอบบ ญช รห ส 720 (ปร บปร ง) ความร บผ ดชอบของผ สอบบ ญช เก ยวก บข อม ลอ น สภาว ชาช พบ ญช ในพระบรมราช ปถ มภ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สารบัญ - OAE](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## สารบัญ - OAE
+14. การจ ดระเบ ยบประมงให เป นมาตรฐาน (IUU) 38.24 513.14 144.82 28.22 15. การพ ฒนาสถาบ นเกษตรกรร ปแบบประชาร ฐ 27.52 12.27 2.21 18.01 16.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการสอบบัญชี รหัส 706 ปรับปรุง วรรคเน้นข้อมูล ](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## มาตรฐานการสอบบัญชี รหัส 706 ปรับปรุง วรรคเน้นข้อมูล 
+มาตรฐานการสอบบ ญช รห ส 706 ปร บปร ง) วรรคเน นข อม ลและเหต การณ และวรรคเร องอ น  สอบบ ญช ฉบ บน ในส วนท เ ยว บร ปแบบ และต าแหน งองวรรคด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บัญชีราคามาตรฐานสิ่งก่อสร้าง](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## บัญชีราคามาตรฐานสิ่งก่อสร้าง
+- แบบ 216 ล./46 ตอกเสาเข ม คอร. 14,588,000 3.7 อาคารเร ยน คสล. 3 ช น ขนาด 16 ห องเร ยน เน อท 2,592 ตารางเมตร - แบบ 216 ล./57 ตอกเสาเขม คอร. 15,873,100
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการสอบบญชัีรหสั 402](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## มาตรฐานการสอบบญชัีรหสั 402
+สภาว ชาช พบ ญช ในพระบรมราช ปถ มภ 4 TSA 402 ค าน า ขอบเขตของมาตรฐานการสอบบญช ฉบบน 1. มาตรฐานการสอบบ ญช ฉบ บน เก ยวข องก บความร บผ ดชอบของผ สอบบ ญช ของก จการท ใช
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สารบัญ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## สารบัญ
+14. การจ ดระเบ ยบประมงให เป นมาตรฐาน (IUU) 27.80 513.14 116.06 22.62 15. การพ ฒนาสถาบ นเกษตรกรร ปแบบประชาร ฐ 1.92 12.27 0.61 4.97 16.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![มาตรฐานการสอบบัญชี รหัส 706 ปรับปรุง วรรคเน้นข้อมูล ](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## มาตรฐานการสอบบัญชี รหัส 706 ปรับปรุง วรรคเน้นข้อมูล 
+มาตรฐานารสอบบ ญช รห ส ] _ X (ปร บปร ง) " ารด าเน นงานต อเน อง" 3 มาตรฐานารสอบบัญชี รหัส _ Z X (ปรับปรุง) "ความรับผิดชอบ องผู้สอบบัญชีเ ี่ยว ับ ้อมูลอื่น"
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [การทำเหมือง u0026amp ยางอุตสาหกรรม](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%20u0026amp%20%E0%B8%A2%E0%B8%B2%E0%B8%87%E0%B8%AD%E0%B8%B8%E0%B8%95%E0%B8%AA%E0%B8%B2%E0%B8%AB%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1.md)
+* [ส่วนประกอบหลักของเครื่องบดผลกระทบ](%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%AD%E0%B8%9A%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9C%E0%B8%A5%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%9A.md)
+* [อุปกรณ์สำรวจขุดทอง](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%AA%E0%B8%B3%E0%B8%A3%E0%B8%A7%E0%B8%88%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87.md)
+* [กานาเครื่องบดแร่ฟอสเฟตขนาดเล็กสำหรับขาย](%E0%B8%81%E0%B8%B2%E0%B8%99%E0%B8%B2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%9F%E0%B8%AD%E0%B8%AA%E0%B9%80%E0%B8%9F%E0%B8%95%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%82%E0%B8%B2%E0%B8%A2.md)
+* [เครื่องบดกรามหินส่งออกจากอุตสาหกรรมเซี่ยงไฮ้ในมอริเชียส](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%AA%E0%B9%88%E0%B8%87%E0%B8%AD%E0%B8%AD%E0%B8%81%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B8%AD%E0%B8%B8%E0%B8%95%E0%B8%AA%E0%B8%B2%E0%B8%AB%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%87%E0%B9%84%E0%B8%AE%E0%B9%89%E0%B9%83%E0%B8%99%E0%B8%A1%E0%B8%AD%E0%B8%A3%E0%B8%B4%E0%B9%80%E0%B8%8A%E0%B8%B5%E0%B8%A2%E0%B8%AA.md)
+* [ทางเลือกสำหรับการระเบิดหินแกรนิต](%E0%B8%97%E0%B8%B2%E0%B8%87%E0%B9%80%E0%B8%A5%E0%B8%B7%E0%B8%AD%E0%B8%81%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B4%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95.md)
+* [ความเร็วในการเจียรและฟีดทรงกระบอก](%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%A3%E0%B9%87%E0%B8%A7%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%80%E0%B8%88%E0%B8%B5%E0%B8%A2%E0%B8%A3%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9F%E0%B8%B5%E0%B8%94%E0%B8%97%E0%B8%A3%E0%B8%87%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%AD%E0%B8%81.md)
+* [โรงล้างและคัดกรองแร่และหิน](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%A5%E0%B9%89%E0%B8%B2%E0%B8%87%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%84%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [เครื่องบดกรามอินโดนิเซียราคาขาย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%82%E0%B8%94%E0%B8%99%E0%B8%B4%E0%B9%80%E0%B8%8B%E0%B8%B5%E0%B8%A2%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%A2.md)
+* [ผู้ผลิตเครื่องบดถ่านหินในยุโรป](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%A2%E0%B8%B8%E0%B9%82%E0%B8%A3%E0%B8%9B.md)

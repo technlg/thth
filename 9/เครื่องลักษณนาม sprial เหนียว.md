@@ -1,0 +1,56 @@
+# เครื่องลักษณนาม sprial เหนียว
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณนาม - ครู ลิลลี่](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## ลักษณนาม - ครู ลิลลี่
+ค รองเท า ถ งเท า แจก น เช งเท ยน ช อน ส อม เขาส ตว โหล ด นสอ สม ด ไม หน บผ า ของใช ก ล ผ าลาย ผ าพ น ผ าขาวม า ผ าโสร ง (ผ าห อหน งท รวมก น ๒๐ ผ น)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![++++ นายกฯ ยิ่งลักษณ์ ใช้มือถือ 6 เครื่อง?!! .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## ++++ นายกฯ ยิ่งลักษณ์ ใช้มือถือ 6 เครื่อง?!! .
+เคยได ย นนายกให ส มภาษณ นานแล ว น กข าวถาม ว าใช โทรศ พท ร นไหน นายกบอกว าม ครบ ใช ครบท กย ห อ :O ม อะไรบ าง ด ออกไม ก เคร องเอง
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โปรดเกล้าฯ ถอดยศ เรียกคืนเครื่องราชฯ 2 พันโท กระทำ ](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## โปรดเกล้าฯ ถอดยศ เรียกคืนเครื่องราชฯ 2 พันโท กระทำ 
+โปรดเกล าฯ ถอดยศ เร ยกค นเคร องราชอ สร ยาภรณ พ นโท เอกช ย ค กระส ง และพ นโท มาฆฤกษ ค สำราญ กระทำผ ดราชสว สด ในเช งช สาว 2. พ นโท มาฆฤกษ ค สำราญ ตำแหน ง เจ า 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตัวอย่างลักษณะนาม](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## ตัวอย่างลักษณะนาม
+เคร องบ นท กเส ยง เคร อง เครื่องบิน ลำ,เครื่อง เครื่องแบบ ชุด
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แกะรอย "ยิ่งลักษณ์" จาก "กัมพูชา" ถึง "ดูไบ"](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## แกะรอย "ยิ่งลักษณ์" จาก "กัมพูชา" ถึง "ดูไบ"
+แกะรอย "ย งล กษณ "จาก "ก มพ ชา" ถ ง "ด ไบ" และปลายทางค อ "อ งกฤษ"ม รายงานว า สมชาย แสวงการ สมาช กสภาน ต บ ญญ ต แห งชาต (สนช.)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![นายกฯ ยิ่งลักษณ์ เป็นประธานเปิดงานนมัสการองค์พระ ](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## นายกฯ ยิ่งลักษณ์ เป็นประธานเปิดงานนมัสการองค์พระ 
+เม อว นท 18 มค. 2556 เวลา 15.00 น.นางสาวย งล กษณ ช นว ตร นายกร ฐมนตร เด นทางมาเป นประธานเป ดงานนม สการองค พระธาต พนม จ.นครพนม โดยม นายอน ก ล ต งคณาน ก ลช ย ผวจ. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![นายกฯ เมิน "ทักษิณ-ยิ่งลักษณ์" โผล่ปักกิ่ง ให้ ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## นายกฯ เมิน "ทักษิณ-ยิ่งลักษณ์" โผล่ปักกิ่ง ให้ 
+นายกรัฐมนตรี เมิน "ยิ่งลักษณ์-ทักษิณ" โผล่ปักกิ่ง โยนให้ กต.ติดตาม ไม่รู้ยังอยู่ที่จีนหรือไม่ ขออย่าสนใจคนทำผิดกฏหมาย
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณะของเรือนไทยภาคกลาง (คืออะไร หมายถึง ความหมาย ](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## ลักษณะของเรือนไทยภาคกลาง (คืออะไร หมายถึง ความหมาย 
+ล กษณะของเร อนไทยภาคกลาง, ล กษณะของเร อนไทยภาคกลาง หมายถ ง, ล กษณะของเร อนไทยภาคกลาง ค อ, ล กษณะของเร อนไทยภาคกลาง ความหมาย, ล กษณะของเร อนไทยภาค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลักษณนาม คําลักษณนาม ที่หลายคนใช้ผิด - Kapook](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## ลักษณนาม คําลักษณนาม ที่หลายคนใช้ผิด - Kapook
+เราเรียนภาษาไทยกันมาตั้งแต่จำความได้ แต่จนบัดนี้ก็ยังมีอยู่หลายจุดที่เรายังคงใช้ผิดกันอยู่เสมอ อย่างในเรื่องของ "ลักษณนาม" .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ค้นหาผู้ผลิต ดินแร่เครื่องซักผ้าล็อก .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## ค้นหาผู้ผลิต ดินแร่เครื่องซักผ้าล็อก .
+ค้นหาผู้ผลิตด นแร เคร องซ กผ าล อก ผ จำหน าย ด นแร เคร องซ กผ าล อก และส นค า ด นแร เคร องซ กผ าล อก ท ม ค ณภาพด วยราคา ท ด ท ส ดใน Alibaba 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ค้นหาผู้ผลิต ดินแร่เครื่องซักผ้าล็อก .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## ค้นหาผู้ผลิต ดินแร่เครื่องซักผ้าล็อก .
+ค นหาผ ผล ต ด นแร เคร องซ กผ าล อก ผ จำหน าย ด นแร เคร องซ กผ าล อก และส นค า ด นแร เคร องซ กผ าล อก ท ม ค ณภาพด วยราคาท ด ท ส ดใน Alibaba ร บใบเสนอราคามากมายภายใน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [การกัดโลหะทองคำขาวแร่ทองคำและเงิน](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B9%82%E0%B8%A5%E0%B8%AB%E0%B8%B0%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%82%E0%B8%B2%E0%B8%A7%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%87%E0%B8%B4%E0%B8%99.md)
+* [ผู้ผลิตโรงงานบดมือถือในไก่งวงสำหรับทราย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%83%E0%B8%99%E0%B9%84%E0%B8%81%E0%B9%88%E0%B8%87%E0%B8%A7%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2.md)
+* [เครื่องบดทองขายในตุรกี](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%95%E0%B8%B8%E0%B8%A3%E0%B8%81%E0%B8%B5.md)
+* [จำหน่ายหินธรรมชาติยะโฮร์](%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%98%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%8A%E0%B8%B2%E0%B8%95%E0%B8%B4%E0%B8%A2%E0%B8%B0%E0%B9%82%E0%B8%AE%E0%B8%A3%E0%B9%8C.md)
+* [ขายเครื่องบดเหล็กแอลจีเรีย](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%81%E0%B8%AD%E0%B8%A5%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)
+* [วิธีการแยกกระบวนการแยกแร่เหล็กเครื่องบดแร่ทองคำ](%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%A2%E0%B8%81%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%A2%E0%B8%81%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [ดินขาวดินขาวผู้ผลิตเครื่องจักรโรงงานแปรรูป](%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%B2%E0%B8%A7%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%B2%E0%B8%A7%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B.md)
+* [เครื่องบดลูกมิลล์ประหยัดพลังงาน](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%A1%E0%B8%B4%E0%B8%A5%E0%B8%A5%E0%B9%8C%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AB%E0%B8%A2%E0%B8%B1%E0%B8%94%E0%B8%9E%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99.md)
+* [เครื่องบดหินราคาชาวประมง](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B8%8A%E0%B8%B2%E0%B8%A7%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%87.md)
+* [โรงงานผลิตหินแกรนิตในเหมือง](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87.md)

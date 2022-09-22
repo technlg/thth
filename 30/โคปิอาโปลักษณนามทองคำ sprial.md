@@ -1,0 +1,52 @@
+# โคปิอาโปลักษณนามทองคำ sprial
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ม็อบยางโค-อ๊อปคึก เดินหน้าขอเงินชดเชย](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ม็อบยางโค-อ๊อปคึก เดินหน้าขอเงินชดเชย
+โคว ด-19 ข าวด วน ข าวด วนท นเหต การณ ข าวสดว นน ข าวหวย ข าวต างประเทศ ข าวการเม อง ข าวสด ข าวออนไลน ข าวบ นเท ง ผลสลากก นแบ งร ฐบาล ตรวจ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โลกธุรกิจ - .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## โลกธุรกิจ - .
+นพ สด ท ฝากส งในบร การไปรษณ ย อ โคโพสต (ECO-POST) จากต นทางไปรษณ ย ย ต ธรรม โดยฝากส งเม อว นท 20 ส งหาคม 2562 ถ งปลายทางท ไปรษณ ย สามเสนในว นท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานการณ์โคนมโลก&ไทย ปี 2562 - Dairy Development .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## สถานการณ์โคนมโลก&ไทย ปี 2562 - Dairy Development .
+1. สถานการณ ป 2561 1.1 ของโลก 1.1.1 การผล ต ป 2557 - 2561 จำนวนโคนมในประเทศผ ผล ตท สำค ญของโลก ม แนวโน มเพ มข นร อยละ 0.95 ต อป โดยในป 2561 ม จำนวนโคนมรวม 143.34 ล านต ว เพ มข นจาก 141 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เปิ้ล นาคร โพสต์ขอโทษเพจดัง .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## เปิ้ล นาคร โพสต์ขอโทษเพจดัง .
+โดย เป ล นาคร โพสต ถ งเพจว จารณ หน งท พ ดถ งการแสดงของเจ าต วว า "พ ขอโทษนะคร บ ท เก ดมาแล วได ทำในส งท ต วเองร กมา 30 ป ในวงการบ นเท ง แล วเผอ ญมาทำให น องไม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![นางเอกโฆษณา โค๊ก - Pantip](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## นางเอกโฆษณา โค๊ก - Pantip
+อยากทราบว า นางเอกโฆษณาโค ก ต วล าส ด ท ไม ใช คนไทย (ร ป าว) ค อใคร (ขอโทษด วยคร บไม ม ว ด โอประกอบ อยากทราบว า นางเอกโฆษณาโค ก ต วล าส ด ท ไม ใช คนไทย (ร ป าว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เปิดโผ 'ยักษ์ใหญ่' โทรคมนาคมโลก - Bangkok Biz News](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## เปิดโผ 'ยักษ์ใหญ่' โทรคมนาคมโลก - Bangkok Biz News
+อ พเดทสถานการณ 'โคว ด-19' ว นท 23 ธ นวาคม 2563 โคว ดว นน ! ไทยพบผ ต ดเช อ 'โคว ด-19' เพ ม 46 ราย ต ดเช อในประเทศ 39 คน เช คก อน!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!["โค้ก" ระงับการผลิตในเวเนซุเอลา เนื่องจากขาดแคลน ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## "โค้ก" ระงับการผลิตในเวเนซุเอลา เนื่องจากขาดแคลน 
+รอยเตอร - บร ษ ท โคคา-โคลา ระง บการผล ตเคร องด ม "โค ก" ในเวเนซ เอลาช วคราว เน องจากเผช ญป ญหาขาดแคลนน ำตาล โฆษกหญ งของบร ษ ทซอฟต ดร งก รายใหญ ของโลก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เอาก้นลงหน่อยจากC- arm - กฤษณา สำเร็จ (Krisana .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## เอาก้นลงหน่อยจากC- arm - กฤษณา สำเร็จ (Krisana .
+ภาพเอกซเรย จากเคร องฟล ออโรสโคป (Fluoroscopic X-ray Images) การเอกซเรย ด วยเคร องฟล ออโรสโคปต างจากการเอกซเรย โดยท วไป เน องจากสามารถเห นภาพเอกซเรย ได แบบท นกาล (real 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ทักษิณ อ้างเป็น เอ็นไซโคลปีเดีย ของ ยิ่งลักษณ์](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## ทักษิณ อ้างเป็น เอ็นไซโคลปีเดีย ของ ยิ่งลักษณ์
+สร ปแถลงศบค. โคว ด 19 ในไทย ว นน 2/07/2563 | 11.30 น. July 2, 2020 July 2, 2020 MThai App ต ดตามข อม ลได ท กท ท กเวลา MThai Video App คล ปตลก คล ปฮา ด ได ท กท บนม อถ อค ณ คำค นยอดฮ ต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![นายกฯ ปลื้ม เนื้อโคขุนสหกรณ์เกษตรหนองสูง ตั้งเป้า ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## นายกฯ ปลื้ม เนื้อโคขุนสหกรณ์เกษตรหนองสูง ตั้งเป้า 
+นายกฯ เปิดโรงงานแปรรูปผลิตภัณฑ์เนื้อโคขุนสหกรณ์การเกษตรหนองสูง จำกัด ตั้งเป้าภายในปี 2565 มูลค่าผลิตภัณฑ์โคขุนของสหกรณ์จะเพิ่มสูงถึง 500 ล้าน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ภาพถ่ายประวัติศาสตร์ของโรงงานผลิตลูกบอล](%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A7%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%A8%E0%B8%B2%E0%B8%AA%E0%B8%95%E0%B8%A3%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%AD%E0%B8%A5.md)
+* [suagr ผู้ผลิตเครื่องจักรบดอ้อยในประเทศจีน](suagr%20%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%AD%E0%B9%89%E0%B8%AD%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B8%88%E0%B8%B5%E0%B8%99.md)
+* [ขายโรงโม่ปูน](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B9%82%E0%B8%A1%E0%B9%88%E0%B8%9B%E0%B8%B9%E0%B8%99.md)
+* [ผู้ประมูลอุปกรณ์ขุดในแอฟริกาใต้](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [เครื่องบดมือถือในอินเดีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องชั่งห้องปฏิบัติการโรงสีลูก](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%8A%E0%B8%B1%E0%B9%88%E0%B8%87%E0%B8%AB%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%A5%E0%B8%B9%E0%B8%81.md)
+* [อุปกรณ์ประโยชน์แร่ทองแดงสำหรับปากีสถาน](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%82%E0%B8%A2%E0%B8%8A%E0%B8%99%E0%B9%8C%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%9B%E0%B8%B2%E0%B8%81%E0%B8%B5%E0%B8%AA%E0%B8%96%E0%B8%B2%E0%B8%99.md)
+* [เทคโนโลยีการบดควอตซ์เยอรมัน](%E0%B9%80%E0%B8%97%E0%B8%84%E0%B9%82%E0%B8%99%E0%B9%82%E0%B8%A5%E0%B8%A2%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%84%E0%B8%A7%E0%B8%AD%E0%B8%95%E0%B8%8B%E0%B9%8C%E0%B9%80%E0%B8%A2%E0%B8%AD%E0%B8%A3%E0%B8%A1%E0%B8%B1%E0%B8%99.md)
+* [ผู้ผลิตโรงงานบดคุณภาพสูง](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%84%E0%B8%B8%E0%B8%93%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B8%AA%E0%B8%B9%E0%B8%87.md)
+* [รถบดมือสองสำหรับในยุโรป](%E0%B8%A3%E0%B8%96%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%83%E0%B8%99%E0%B8%A2%E0%B8%B8%E0%B9%82%E0%B8%A3%E0%B8%9B.md)

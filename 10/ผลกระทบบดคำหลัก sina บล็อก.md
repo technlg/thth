@@ -1,0 +1,56 @@
+# ผลกระทบบดคำหลัก sina บล็อก
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ภาคผนวก ข สรุปผลการจัดประชุมเพื่อรับฟังความคิดเห็น ](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## ภาคผนวก ข สรุปผลการจัดประชุมเพื่อรับฟังความคิดเห็น 
+3) ผลกระทบต ออ ตสาหกรรมจากการเป ดเสร ทางการค าท ส งผลให ภาษ การน าเข าลดลง 4) ความต้องการการส่งเสริมนโยบายจากภาครัฐ เพื่อให้อุตสาหกรรมเติบโต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1 บทบาทของผู้ใหญ่บ้านในการด าเนินงานตามนโยบาย ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## 1 บทบาทของผู้ใหญ่บ้านในการด าเนินงานตามนโยบาย 
+ผล การว จ ยพบว า การม บทบาทของผ ใหญ บ านในการด าเน นงานตามนโยบายร ฐบาล  ป ญหาท ม ความส มพ นธ เช อมโยงและส งผลกระทบ ต อ ป ญหาอ น ๆ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คณะบุคคลส่งจดหมายเปิดผนึกร้องนายกฯ หยุดพิจารณา ](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## คณะบุคคลส่งจดหมายเปิดผนึกร้องนายกฯ หยุดพิจารณา 
+ร ปข าว : คณะบ คคลส งจดหมายเป ดผน กร องนายกฯ หย ดพ จารณาร างแก ไข พ.ร.บ.ป โตรเล ยมของ ก.พล งงาน ช ทำชาต เส ยหาย ร ปข าว : คณะบ คคลส งจดหมายเป ดผน กร อง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เคล็ดลับสำหรับผู้ที่ต้องการสร้างรายได้จาก ](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## เคล็ดลับสำหรับผู้ที่ต้องการสร้างรายได้จาก 
+หมวดหม ถ าค ณใช หมวดหม แบบเล อนลงแล วพวกเขาพบบาร ภายใต หมวดหม หล ก: สำน กงาน, การออกแบบกราฟ ก, อ ปกรณ, อ นเตอร เน ต, ม ลต ม เด ย, ความปลอดภ ย, ระบบจ ดเก บข 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผู้ได้รับผลกระทบจาก พรบ. คอมฯ « Thai Netizen Network](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## ผู้ได้รับผลกระทบจาก พรบ. คอมฯ « Thai Netizen Network
+ผ ท ได ร บผลกระทบจาก พระราชบ ญญ ต ว าด วยการกระทำความผ ดเก ยวก บคอมพ วเตอร พ.ศ. 2550  [ชายอาย ราว 37 ป - กรณ "พระยาพ ช ย"](#phrayapichai)  [ผ หญ งอาย ราว 30 ป - กรณ "ท อนจ น"](#tonchan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลการใชโปรแกรมสมาธิบ าบัด ในผูปวยโรคความดันโลหิต ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## ผลการใชโปรแกรมสมาธิบ าบัด ในผูปวยโรคความดันโลหิต 
+1 ผลการใชโปรแกรมสมาธ บ าบ ด ในผ ปวยโรคความด นโลห ตส งและโรคเบาหวาน Effect of Meditation program in case of Hypertension and Diabetic patients. โดย รศ.ดร.ส ทธ ร ตน พ มพ พงศ และคณะ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![【】  &  .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## 【】  &  .
+【】  &  (2020.03.04) &  & Novel Coronavirus (COVID-19) Pneumonia Medication around the world & Guideline of diagnosis and 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ISBN คืออะไร – บล็อกชุมชนผู้ปฎิบัติงาน ม.อ. ภูเก็ต](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## ISBN คืออะไร – บล็อกชุมชนผู้ปฎิบัติงาน ม.อ. ภูเก็ต
+ISBN ค ออะไร เลขมาตรฐานสากลประจำหน งส อ (ISBN) เป นรห สเฉพาะกำหนดข นเพ อให เป นเอกล กษณ ของหน งส อแต ละช อเร อง โดยม สำน กงานใหญ อย ท กร งลอนดอน ประเทศอ งกฤษ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 4 ผลการด าเนินงาน - Mahasarakham University](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## บทที่ 4 ผลการด าเนินงาน - Mahasarakham University
+53 4.1.8. เม อท าการ Config เร ยบร อยแล ว ให ท าการบ นท ก โดยเล อกท File > Save หล งจาก น นก ท าการทดสอบด ว ากล องบ นท กภาพหร อไม
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลการค้นหาคำว่า "B" จากพจนานุกรมวิศวกรรมศาสตร์](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## ผลการค้นหาคำว่า "B" จากพจนานุกรมวิศวกรรมศาสตร์
+Bleaching การฟอกให ส ตก [ช างก อสร าง] ; การฟอกส [ส -วาร น ช] ; การลดการด ดกล น [ไฟฟ าส อสาร] Bleeding การเย ม [โยธา] ; การย อมส เน อไม [ช างก อสร าง] ; การแตกซ ม [อ ตสาหกรรมเหล ก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 5 สรุปผลการด าเนินงาน](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## บทที่ 5 สรุปผลการด าเนินงาน
+65 5.3 ข อเสนอแนะ 5.3.1 การศ กษากระบวนการด สชาร จอากาศ ได ท าการทดลองเพ อหาค าพาราม เตอร ท เหมาะสมในการสร างธาต อาหารไนเตรทและไนไตรท ส าหร บปล กผ กสล ดกร น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [แร่ทองคำโรงสีโสมม](%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B9%82%E0%B8%AA%E0%B8%A1%E0%B8%A1.md)
+* [อัตโนมัติสามารถบดได้อย่างไร](%E0%B8%AD%E0%B8%B1%E0%B8%95%E0%B9%82%E0%B8%99%E0%B8%A1%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%AA%E0%B8%B2%E0%B8%A1%E0%B8%B2%E0%B8%A3%E0%B8%96%E0%B8%9A%E0%B8%94%E0%B9%84%E0%B8%94%E0%B9%89%E0%B8%AD%E0%B8%A2%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%84%E0%B8%A3.md)
+* [ชิ้นส่วนอะไหล่รถบด](%E0%B8%8A%E0%B8%B4%E0%B9%89%E0%B8%99%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%AD%E0%B8%B0%E0%B9%84%E0%B8%AB%E0%B8%A5%E0%B9%88%E0%B8%A3%E0%B8%96%E0%B8%9A%E0%B8%94.md)
+* [เครื่องบดหินในซาอุดีอาระเบีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B2%E0%B8%AD%E0%B8%B8%E0%B8%94%E0%B8%B5%E0%B8%AD%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2.md)
+* [ขายเครื่องรีไซเคิลตะกรันเหล็กในอินเดีย](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%A3%E0%B8%B5%E0%B9%84%E0%B8%8B%E0%B9%80%E0%B8%84%E0%B8%B4%E0%B8%A5%E0%B8%95%E0%B8%B0%E0%B8%81%E0%B8%A3%E0%B8%B1%E0%B8%99%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องบดหินโรงงานผลิตทรายทำเหมืองหิน](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [ข้อมูลจำเพาะของเครื่องจักรโรงสีค้อนอาหารสัตว์ปีก](%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%88%E0%B8%B3%E0%B9%80%E0%B8%9E%E0%B8%B2%E0%B8%B0%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%84%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B8%AD%E0%B8%B2%E0%B8%AB%E0%B8%B2%E0%B8%A3%E0%B8%AA%E0%B8%B1%E0%B8%95%E0%B8%A7%E0%B9%8C%E0%B8%9B%E0%B8%B5%E0%B8%81.md)
+* [ฟองในการขุดคืออะไร](%E0%B8%9F%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%84%E0%B8%B7%E0%B8%AD%E0%B8%AD%E0%B8%B0%E0%B9%84%E0%B8%A3.md)
+* [บดในแอฟริกาใต้อะไหล่เครื่องบดหินทรายอินเดีย](%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89%E0%B8%AD%E0%B8%B0%E0%B9%84%E0%B8%AB%E0%B8%A5%E0%B9%88%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%97%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องบดกรวยไฮดรอลิก apatite](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B9%84%E0%B8%AE%E0%B8%94%E0%B8%A3%E0%B8%AD%E0%B8%A5%E0%B8%B4%E0%B8%81%20apatite.md)

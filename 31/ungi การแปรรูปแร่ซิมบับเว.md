@@ -1,0 +1,52 @@
+# ungi การแปรรูปแร่ซิมบับเว
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DiffImg (โปรแกรม DiffImg เปรียบเทียบรูปภาพ ฟรี) 2.2.0](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## DiffImg (โปรแกรม DiffImg เปรียบเทียบรูปภาพ ฟรี) 2.2.0
+เพ มการสน บสน นร ป ภาพท มากข น เวอร ช น 2.0.2 แก ไขข อผ ดพลาดท เก ดข นจากเวอร ช นท ผ านๆ มา เวอร ช น 2.0.1 น สน บสน นการลากแล ววาง (Drag-and-Drop) ร ป 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Workshop : User Experience (UX) and User Interface(UI)](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Workshop : User Experience (UX) and User Interface(UI)
+การอบรมเช งปฏ บ ต การเพ อเสร มสร างศ กยภาพการพ ฒนาโครงการ และต ดส นโครงการรอบท 2 ระหว างวน ท 4 – 8 พฤษภาคม พ.ศ. 2557 3 UX ค ออะไร
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โปรแกรมแต่งรูป แอพใส่ไอคอนสีส้ม #giddyology หัวใจ, .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## โปรแกรมแต่งรูป แอพใส่ไอคอนสีส้ม #giddyology หัวใจ, .
+โปรแกรมแต งร ป แอพใส ไอคอนส ส ม #giddyology ห วใจ, คำพ ด, เมฆ, ดอกไม, ฯลฯ social network ในป จจ บ น ม ของเล นใหม ๆมาให เล นอย ตลอดเวลา ล าส ดได ม แนวโน มใหม ท กำล งได ร บความน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![S-Ultra PNG Compressor (โปรแกรมบีบอัดไฟล์ภาพ PNG .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## S-Ultra PNG Compressor (โปรแกรมบีบอัดไฟล์ภาพ PNG .
+S-Ultra PNG Compressor Download S-Ultra PNG Compressor (โปรแกรมบ บอ ดไฟล ภาพ PNG ฟร ) : สำหร บโปรแกรมน ม ช อว า โปรแกรม S-Ultra PNG Compressor ม นเป นโปรแกรมบ บอ ดไฟล ภาพ ตระก ล PNG ท ถ กพ ฒนาโดย บร ษ ท Siam Computer 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เปลี่ยน file type ให้เป็น Unknown application .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## เปลี่ยน file type ให้เป็น Unknown application .
+การบร หารจ ดการ การตลาด ทร พยากรบ คคล งานขาย SME ภาษ น ต บ คคล หว ากอ ว ทยาศาสตร ว ศวกรรม เทคโนโลย ฟ ส กส ดาราศาสตร อวกาศ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NuuNeoI - เลิกการแบกคอมพ์ไปมา ฝากชีวิตไว้บน Cloud](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## NuuNeoI - เลิกการแบกคอมพ์ไปมา ฝากชีวิตไว้บน Cloud
+อาย อานามก ใกล 30 เข าไปท กท อ กป กว าๆก จะถ งเลข 3 แล ว แต ช ว ตย งคงดำรงเป นโปรแกรมเมอร กากๆอย เหม อนเด ม แบกคอมพ MacBook Pro 17 น ว ไปกล บออฟฟ ศท กว นจนไม วายต องซ อ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รูปแบบ random ที่นั่ง airasia แบบใหม่ update 20 Oct .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## รูปแบบ random ที่นั่ง airasia แบบใหม่ update 20 Oct .
+Airasia ม การเปล ยนแปลงการ random ท น งใหม จากการท จขกท ได ทำรายการเชคอ นผ านเว บ หลายๆคร ง (มากกว า 20 คร ง ต งแต ม การเปล ยนแปลงใหม ) โดยส งเก
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![อยากเก่งหรืออยากเป็นเซียน 3D Printer ต้องรู้จักใช้ .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## อยากเก่งหรืออยากเป็นเซียน 3D Printer ต้องรู้จักใช้ .
+ใครอยากส งงาน 3D Printer ให ทำงานได อย างใจท ต องการ อย ารอช า ร บเข าไปอ านการใช งาน G-Code แล วค ณจะร ว า ม นไม ยากอย างท ค ณค ด
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GameMaker110:รวมโปรเเกรมเเละEngineสำหรับสร้างเกมมากมาย .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## GameMaker110:รวมโปรเเกรมเเละEngineสำหรับสร้างเกมมากมาย .
+บทนำ ก ราวๆ 15 ธ นวาคม ป 2554 ทาง Enterbrain ก ได ถ อเป นฤษก งามยามด ปล อยข ปนาว ธล กใหม ท ส นสะท านวงการสร างเกมก นอ กคร งก บ RPG Maker VX Ace โปรแกรมสร างเกมท ได ร บการพ ฒนาต 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การประยุกต์ใช้เอนไซม์ไลเปสสำหรับการเตรียมกรด ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## การประยุกต์ใช้เอนไซม์ไลเปสสำหรับการเตรียมกรด 
+192 การประย กต ใช เอนไซม ไลเปสสำหร บการเตร ยมกรดไขม นไม อ มต วสายยาว Application of lipase for preparation of polyunsaturated fatty acids ว ระ ป ยธ รวงศ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [โมเดล 3 มิติแบบต่อเนื่องขุด](%E0%B9%82%E0%B8%A1%E0%B9%80%E0%B8%94%E0%B8%A5%203%20%E0%B8%A1%E0%B8%B4%E0%B8%95%E0%B8%B4%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%95%E0%B9%88%E0%B8%AD%E0%B9%80%E0%B8%99%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%B8%E0%B8%94.md)
+* [ไฟฟ้าสำหรับโรงสีถ่านหิน](%E0%B9%84%E0%B8%9F%E0%B8%9F%E0%B9%89%E0%B8%B2%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [ต้นทุนโรงสีค้อนในฟิล](%E0%B8%95%E0%B9%89%E0%B8%99%E0%B8%97%E0%B8%B8%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%84%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%9F%E0%B8%B4%E0%B8%A5.md)
+* [อุปกรณ์บดวัตถุดิบที่มีประสิทธิภาพสูง](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9A%E0%B8%94%E0%B8%A7%E0%B8%B1%E0%B8%95%E0%B8%96%E0%B8%B8%E0%B8%94%E0%B8%B4%E0%B8%9A%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%A1%E0%B8%B5%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AA%E0%B8%B4%E0%B8%97%E0%B8%98%E0%B8%B4%E0%B8%A0%E0%B8%B2%E0%B8%9E%E0%B8%AA%E0%B8%B9%E0%B8%87.md)
+* [ผู้ผลิตเครื่องจักรโรงงานปูนซีเมนต์ในอินเดีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [ri รายละเอียดการติดต่อของผู้ผลิตบด jaques ใน i](ri%20%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B9%88%E0%B8%AD%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%9A%E0%B8%94%20jaques%20%E0%B9%83%E0%B8%99%20i.md)
+* [roxon กรวยบดผู้ผลิตฟินแลนด์](roxon%20%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%9F%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%99%E0%B8%94%E0%B9%8C.md)
+* [ลักษณะของสายพานลำเลียงประเภทต่างๆ](%E0%B8%A5%E0%B8%B1%E0%B8%81%E0%B8%A9%E0%B8%93%E0%B8%B0%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%A0%E0%B8%97%E0%B8%95%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%86.md)
+* [การกัดในอุรุกวัย](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%81%E0%B8%B1%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B8%E0%B8%A3%E0%B8%B8%E0%B8%81%E0%B8%A7%E0%B8%B1%E0%B8%A2.md)
+* [หินบดเหมือนกรวด](%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%94.md)

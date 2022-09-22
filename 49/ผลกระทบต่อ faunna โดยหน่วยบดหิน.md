@@ -1,0 +1,52 @@
+# ผลกระทบต่อ faunna โดยหน่วยบดหิน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลของการใช อาหารหยาบทดแทนเลี้ยงโคให นมในฤดู งแล](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## ผลของการใช อาหารหยาบทดแทนเลี้ยงโคให นมในฤดู งแล
+โดยเฉพาะโปรตี นซ ประมาณงม 3 % (C.P.) นอกน นฟางข าวย งประกอบด วยเย อใยปร มาณ  โคาหร จ งเป นแนวทางในการศ กษาและแก ป ญหาโดยเฉพาะผล ผล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลกระทบด้านเศรษฐกิจและสังคมจากโครงการรับจํานํา ](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## ผลกระทบด้านเศรษฐกิจและสังคมจากโครงการรับจํานํา 
+ความส มพ นธ ต อผลกระทบด านส งคมใน เช งบวก อย างม น ยส าค ญทางสถ ต ท  โดยคาดหว งว าผลการว จ ยคร งน จะน ามาซ งองค ความร เก ยวก บผล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ภาคผนวก - Burapha University](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## ภาคผนวก - Burapha University
+และการบอกเล กการเข าร วมการว จ ยน จะไม ม ผลกระทบ ใด ๆ ต อ ข าพเจ า  โดยการท าเคร องหมาย ลงในช องท ตรงก บการร บร ของท าน การเล อก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทที่ 4 ป ญหาผลกระทบต อผู อื่น](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## บทที่ 4 ป ญหาผลกระทบต อผู อื่น
+• ผลภายนอก (externalities) หมายถ งต นท นหร อประโยชน ท เก ดข นท ไม ได สะท อนใน ราคาท ก าหนดโดยกลไกตลาด ผลภายนอกน อาจเร ยกว า ป ญหาผลกระทบต อผ อ น
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การศึกษาต้นทุนและผลตอบแทนของผลิตภัณฑ์หนึ่งตำบล ](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## การศึกษาต้นทุนและผลตอบแทนของผลิตภัณฑ์หนึ่งตำบล 
+441 4) ส งเสร มการพ ฒนาทร พยากรมน ษย 5) ส งเสร มความค ดร เร มสร างสรรค ของช มชน ในการพ ฒนา ผล ตภ ณฑ โดยสอดคล องก บว ถ ช ว ตและว ฒนธรรมในท องถ น (ส าน กงานพ ฒนาช ม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายชื่อบทความที่ผ่านการพิจารณาเพอื่เข้าร่วมในการ ](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## รายชื่อบทความที่ผ่านการพิจารณาเพอื่เข้าร่วมในการ 
+13 ผลท เก ดจากการสอนเน นความจาจากบ ตรภาพท ม ต อผลส มฤทธ ทางการเร ยนร คาศ พท ภาษาอ งกฤษของน กศ กษา กศน.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลกระทบของหินฝุ่นแอนดีไซต์และหินฝุ่นชนวนบด มีต่อ ](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## ผลกระทบของหินฝุ่นแอนดีไซต์และหินฝุ่นชนวนบด มีต่อ 
+ผลกระทบของห นฝ นแอนด ไซต และห นฝ นชนวนบด ม ต อ สมบ ต ของซ เมนต เพสต Effect of Ground 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ต้นทุนผลกระทบภายนอกทางเศรษฐศาสตร์ ของสารเคมี ](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## ต้นทุนผลกระทบภายนอกทางเศรษฐศาสตร์ ของสารเคมี 
+ประเภทผลกระทบ ม ลค าผลกระทบ COI AC AA CVM 1 2 PDG ENV HUM มูลค่า สกุล Atreya, 2005 เนปาล 16.8 ต่อครัวเรือน ต่อปี $
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![- ผลกระทบต่อระบบนิเวศและความหลากหลายทางชีวภาพ - .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## - ผลกระทบต่อระบบนิเวศและความหลากหลายทางชีวภาพ - .
+ผลกระทบต อ ระบบน เวศและความหลากหลายทางช วภาพ อ ณหภ ม เฉล ยของโลกท เพ มส งข น จะทำให การระเหยของน ำทะเล มหาสม ทร แม น ำ ลำธาร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผลกระทบการใช้ระเบียบ ในผู้ประกอบการไทย - TPA](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## ผลกระทบการใช้ระเบียบ ในผู้ประกอบการไทย - TPA
+พ เศษเร อง "ผลกระทบระเบ ยบ REACH: ในผ ประกอบการไทย" วารสาร For Quality จ งได น ดส มภาษณ ค ณไพโรจน ส ญญะเดชาก ล เลขาธ การ สมอ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [การทำงานภายในของเครื่องบดหิน](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A0%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99.md)
+* [โกลกาตาเกี่ยวกับเครื่องบดหินมือสองในอเมริกา](%E0%B9%82%E0%B8%81%E0%B8%A5%E0%B8%81%E0%B8%B2%E0%B8%95%E0%B8%B2%E0%B9%80%E0%B8%81%E0%B8%B5%E0%B9%88%E0%B8%A2%E0%B8%A7%E0%B8%81%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B9%80%E0%B8%A1%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2.md)
+* [เครื่องบดหินผลิตในเยอรมนี](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B9%80%E0%B8%A2%E0%B8%AD%E0%B8%A3%E0%B8%A1%E0%B8%99%E0%B8%B5.md)
+* [หน้าจอแยกน้ำสำหรับการบำบัดเหมืองแร่ทองคำ](%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%88%E0%B8%AD%E0%B9%81%E0%B8%A2%E0%B8%81%E0%B8%99%E0%B9%89%E0%B8%B3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%B3%E0%B8%9A%E0%B8%B1%E0%B8%94%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [mps 4500 b โรงสีแนวตั้ง](mps%204500%20b%20%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B9%81%E0%B8%99%E0%B8%A7%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87.md)
+* [อุปกรณ์โรงสีลูกบดเปียกที่ใช้กันอย่างแพร่หลายสำหรับทองคำ](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%9B%E0%B8%B5%E0%B8%A2%E0%B8%81%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B8%AD%E0%B8%A2%E0%B9%88%E0%B8%B2%E0%B8%87%E0%B9%81%E0%B8%9E%E0%B8%A3%E0%B9%88%E0%B8%AB%E0%B8%A5%E0%B8%B2%E0%B8%A2%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [900 อัลโตกรวยบด na bg](900%20%E0%B8%AD%E0%B8%B1%E0%B8%A5%E0%B9%82%E0%B8%95%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%20na%20bg.md)
+* [โรงงานบดหินขนาด 30 40 ตันต่อชั่วโมง](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%2030%2040%20%E0%B8%95%E0%B8%B1%E0%B8%99%E0%B8%95%E0%B9%88%E0%B8%AD%E0%B8%8A%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B9%82%E0%B8%A1%E0%B8%87.md)
+* [เครื่องจักรทำหินบดกรามใช้เครื่องบดหินเพื่อขาย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%9E%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%82%E0%B8%B2%E0%B8%A2.md)
+* [เครื่องบดหิน m 243 vil](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%20m%20243%20vil.md)

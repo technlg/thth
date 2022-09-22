@@ -1,0 +1,52 @@
+# การขุด barytes ในกรณาฏกะ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การลดของเสียในขั้นตอนกระบวนการบรรจุ โดยการ ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## การลดของเสียในขั้นตอนกระบวนการบรรจุ โดยการ 
+เช งแฟคทอเร ยล 2k ในการออกแบบการทดลองซ งจากการว เคราะห พบว าประกอบด วย 4 ป จจ ยหล ก ได แก ความเร วรอบ อ ณหภ ม แรงกด และเวลาในการซ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แผนปฏิบัติการด านการพัฒนาเอกลักษณ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## แผนปฏิบัติการด านการพัฒนาเอกลักษณ
+เเผนปฏ บ ต การด านการพ ฒนาเอกล กษณ มหาว ทยาล ยราชภ ฏสวนส น นทา ประจ าป การศ กษา 2.5 ปฏ ท นการด าเน นการด านการพ ฒนาเอกล กษณ ระด บมหาว ทยาล ย และระด บ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บริษัท ขุดที่ใหญ่กว่า](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## บริษัท ขุดที่ใหญ่กว่า
+โดยสร ป ใน 10 อ นด บแรกของการจ ดอ นด บ GLOBAL 2000 ป 2019 ม บร ษ ทใหม ท เข ามาค อ Royal Dutch Shell ในอ นด บท 9 และบร ษ ทท หล ดออกจาก 10 อ นด บแรกค อ Berkshire Hathaway ซ ง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ปรากฏการณ เรือนกระจก - BSRU](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## ปรากฏการณ เรือนกระจก - BSRU
+ปรากฏการณ เร อนกระจก บ ญม กวนเสกสรรค  โปรแกรมว ชาช วว ทยาประย กต คณะว ทยาศาสตร และเทคโนโลย มหาว ทยาล ยราชภ ฏบ าน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การประยุกต์ใช้เทคนิคการรับรู้จากระยะไกลและแบบจ า ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## การประยุกต์ใช้เทคนิคการรับรู้จากระยะไกลและแบบจ า 
+เพ อคาดการณ การเปล ยนแปลงการใช ท ด น ในล มน าม ล จ งหว ดศร สะเกษ  ภ ภ กด 2 กฤษน ยน เจร ญจ ตร3 จาร วรรณ วงบ ตด 1 Wacharapong Saengnill1 Suralob Bhubak2 kitsanai Charoenjit3 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การเกิดปรากฏการณ์น ้าทะเลเปลี่ยนสีของประเทศไทย](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## การเกิดปรากฏการณ์น ้าทะเลเปลี่ยนสีของประเทศไทย
+พ ชกล มท ม ศ กยภาพในการสร างสารพ ษในแหล งน าธรรมชาต ก ย งม ความจ าเป นท ต องด าเน นการอย าง ต อเน อง ป จจ บ นม การรายงานชน ดของแพลง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กฏ กติกา มารยาท ในการเข้าร่วมกลุ่ม Aladin Plaza ทั้ง .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## กฏ กติกา มารยาท ในการเข้าร่วมกลุ่ม Aladin Plaza ทั้ง .
+ในการสม คร เป นสมาช ก เพ อเข าใช งานระบบ เว บ หร อส อส งคมออนไลน Line และ Facebook ของทางห าง สมาช กควร ปฏ บ ต ตามกฎ กต กา มารยาท ในการเข าใช งานในการ โพสต ลง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หลหลกเกณฑและวธการดาเนนการตามกฎกระทรวงักเกณฑ ์และ ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## หลหลกเกณฑและวธการดาเนนการตามกฎกระทรวงักเกณฑ ์และ 
+หลหลกเกณฑและวธการดาเนนการตาม กฎกระทรวง กเกณฑ และวธ การด าเน นการตามกฎกระทรวง  กองคการบรหารสวนตาบล การบร หารส วนต าบล กร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การผลิตและคุ าทางอาหารของกะปณค - BSRU](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## การผลิตและคุ าทางอาหารของกะปณค - BSRU
+ค ณค าทางอาหารของกะป ซ งจากการแปรร ป กะป โดยใช ก งเคยโกร งผสมก บเกล อสม ทรใน อ ตราส วน 10:1 พบว าก งเคยสด 2.2 ก โลกร ม
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ปรากฏการณสูงขึ้นของระดับน้ําทะเลในประเทศไทย MEAN SEA .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## ปรากฏการณสูงขึ้นของระดับน้ําทะเลในประเทศไทย MEAN SEA .
+ปรากฏการณส งข นของระด บน าทะเลในประเทศไทย MEAN SEA LEVEL RISE IN THAILAND  เหมาะสมก บการใชเปนขอม ลในการว จ ย ไดแกa เกาะหล ก จ.ประจวบค ร ข นธ ส ตห บ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [หินบดหินไกล](%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%84%E0%B8%81%E0%B8%A5.md)
+* [กระบวนการถลุงตะกั่วและอุปกรณ์ที่จำเป็น](%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%96%E0%B8%A5%E0%B8%B8%E0%B8%87%E0%B8%95%E0%B8%B0%E0%B8%81%E0%B8%B1%E0%B9%88%E0%B8%A7%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%88%E0%B8%B3%E0%B9%80%E0%B8%9B%E0%B9%87%E0%B8%99.md)
+* [ขายเครื่องบดหินมือสองสหราชอาณาจักร](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%AA%E0%B8%AB%E0%B8%A3%E0%B8%B2%E0%B8%8A%E0%B8%AD%E0%B8%B2%E0%B8%93%E0%B8%B2%E0%B8%88%E0%B8%B1%E0%B8%81%E0%B8%A3.md)
+* [ตัวแทนจำหน่ายเครื่องบดมือถือตีนตะขาบในดูไบ](%E0%B8%95%E0%B8%B1%E0%B8%A7%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%95%E0%B8%B5%E0%B8%99%E0%B8%95%E0%B8%B0%E0%B8%82%E0%B8%B2%E0%B8%9A%E0%B9%83%E0%B8%99%E0%B8%94%E0%B8%B9%E0%B9%84%E0%B8%9A.md)
+* [พัดลมดูดถ่านหินความเร็วสูง](%E0%B8%9E%E0%B8%B1%E0%B8%94%E0%B8%A5%E0%B8%A1%E0%B8%94%E0%B8%B9%E0%B8%94%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%A3%E0%B9%87%E0%B8%A7%E0%B8%AA%E0%B8%B9%E0%B8%87.md)
+* [ขายอุปกรณ์ขุดทองมือสองเนเธอร์แลนด์](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%99%E0%B9%80%E0%B8%98%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B9%81%E0%B8%A5%E0%B8%99%E0%B8%94%E0%B9%8C.md)
+* [ขายโรงงานผลิตยางมือถือยางขนาดเล็กของอินเดีย](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A2%E0%B8%B2%E0%B8%87%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%A2%E0%B8%B2%E0%B8%87%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [รายชื่อโรงงานบดหิน belgaum](%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%20belgaum.md)
+* [เครื่องติดตามหินบด](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B2%E0%B8%A1%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94.md)
+* [อุปกรณ์โรงสีในแอฟริกาใต้](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)

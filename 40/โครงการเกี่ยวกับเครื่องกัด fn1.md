@@ -1,0 +1,80 @@
+# โครงการเกี่ยวกับเครื่องกัด fn1
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตัวเลือกไบนารีตอนนี้ กาฬสินธุ์](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## ตัวเลือกไบนารีตอนนี้ กาฬสินธุ์
+Windows 7 - 64 บ ตด มากฉ นร ก โปรแกรมเช น Ninjatrader 7 กำล งใช ประโยชน จากเทคโนโลย ม ลต บ ตแบบ 64 บ ต บาง บร ษ ท ซอฟต แวร ล าหล ง แต ค ณย งคงสามารถใช งานได 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โครงการให้ความรู้เกี่ยวกับอันตรายและผลกระทบที่ ](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## โครงการให้ความรู้เกี่ยวกับอันตรายและผลกระทบที่ 
+โครงการให ความร เก ยวก บอ นตรายและผลกระทบท เก ดจากบ หร และยาเสพต ด รห สโครงการ 61-L ความสอดคล องก บแผนงาน แผนงานบ หร, แผนงาน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![UKEM Anual report 2010 by shareinvestor shareinvestor .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## UKEM Anual report 2010 by shareinvestor shareinvestor .
+UKEM Anual report 2010 u i s ~ i ~ ~ u z u "pssmwnmi un" ' Qd~"d7~nss~nis i0'mnis 7. qnqimsnislnwi - M.B.A in Marketing University of New Haven, USA r~nznssrrnis~i"ijdu1~n~uirr
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hugging Face](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Hugging Face
+`Lh . M ท ) และ U ? c ของ ใน o - y การ c เป น A จะ ได ไม Y เรา ว า I ม ! เขา N ความ ให 9, พระ N คน ] ท P ค ณ ϱ แต " ! :  n อย าง ก บ " ไป K ได K น น 3ҹ ผ 뛻 น ก ( " 2 แล ว จาก ๆ q " ý มา e ฉ น ھ ของ ผม แล ว ท า k นะ .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FOTOINFO ISSUE152 NOVEMBER 2017 by FOTOINFO .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## FOTOINFO ISSUE152 NOVEMBER 2017 by FOTOINFO .
+CONTENTS ป ท 13 ฉบ บท 152 พฤศจ กายน 2560 CONTENTS 38 Fujifilm X-E3, Lens XF 10-24mm f/4 R OIS, 1/400 sec., f/8, ISO-200, Mode A, Metering Mode : Pattern, WB Auto
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Geek customized sk61 60% 61 keys nkro gateron optical .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Geek customized sk61 60% 61 keys nkro gateron optical .
+Only US$69.99, buy best geek customized sk61 60% 61 keys nkro gateron optical axis type-c wired rgb backlight mechanical gaming keyboard sale online store at wholesale
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การจัดการองค์ความรู้เกี่ยวกับ การจัดท าสัญญาค า ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## การจัดการองค์ความรู้เกี่ยวกับ การจัดท าสัญญาค า 
+12) จ ดใหม พยานท ร เห นการท าส ญญาลงลายม อช อในส ญญา แมกฎหมายจะไมบ งค บใหตอง ม พยานก ตองม พยานไว a เพราะหากม ขอพ พาทเก ดข นจะสามารถอ aางพยาน เพ อเบ กความย 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การจัดการความเสี่ยงของโครงการ](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## การจัดการความเสี่ยงของโครงการ
+การบร หารความเส ยงของโครงการเป นเร องสำค ญและหล กเล ยงไม ได แม การ ต ดส นใจโดยการศ กษาความเป นไปได ของโครงการ (Feasibility Study) จะช วยให ม ความม นใจในผลสำเร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บริษัท ที เอช เอ็น อินทิเกรชั่น จำกัด THNINTEGRATION .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## บริษัท ที เอช เอ็น อินทิเกรชั่น จำกัด THNINTEGRATION .
+ท เอช เอ น อ นท เกรช น ต วแทนขายส นค าอ ตสหกรรม ต างๆ จำหน าย ตล บล กป น Bearing ล กป น NSK,SKF,NTN,AKI,INA,NACHI,ASAHI,TIMKEN,KOYO โซ KANA สายพาน BANDO บอลวาล ว KITZ บอลสกร HIWIN,THK ออยซ ล SOG,NAK,CR ฯลฯ ผล ตภ ณฑ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เกี่ยวกับโครงการ](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## เกี่ยวกับโครงการ
+โครงการศ นย ข อม ลธ รก จช มชน เก ยวก บ ศ นย 14 August 2014 Super User Hits: 1038 Print Email 1. หล กการและเหต ผล การบร การว ชาการแก ส งคมเป นหน งในภารก จหล กของม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โครงการให้ความรู้เกี่ยวกับการปกครองในระบอบ ](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## โครงการให้ความรู้เกี่ยวกับการปกครองในระบอบ 
+โครงการให ความร เก ยวก บการ ปกครองในระบอบประชาธ ปไตย (ว ดประด ) ว นท 7 ม .ย. 2560 ว นน (7 ม ถ นายน 60) น.ส.ป นทอง อ นทรศร ผอ.กต.จว.สม ทรสงคราม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แนวคิดเกี่ยวกับการบริหารโครงการ | whoknown](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## แนวคิดเกี่ยวกับการบริหารโครงการ | whoknown
+ว นน เป นโจทย เร อง "แนวค ดเก ยวก บการบร หารโครงการ" หากน กศ กษาม หน าท พ ฒนาระบบสารสนเทศท งหมดให แก บร ษ ทจำหน ายผล ตภ ณฑ ทางการเกษตร โดยม พน กงานในองค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1.หลักการทำโครงงานคอมพิวเตอร์ - piriya23101y2555](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## 1.หลักการทำโครงงานคอมพิวเตอร์ - piriya23101y2555
+ไซต ในการจ ดการเร ยนการสอนรายว ชา ง23101 เทคโนโลย สารสนเทศ 5 ระด บช นม ธยมศ กษาป ท 3 โรงเร ยนเบ ญจะมะมหาราช จ งหว ดอ บลราชธาน สำน กงานเขตพ นท การศ กษาม ธยม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Learning with me - Blogger](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Learning with me - Blogger
+ค ณสามารถเร ยนร ไปพร อมก บผมได นะคร บ cnedemo noreply 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายงานผลการจัดโครงการ](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## รายงานผลการจัดโครงการ
+2 รายงานผลการจ ดโครงการ โครงการอบรมเชงปฏบ ตการ การเขยนรายงานการประเมนตนเอง (SAR) 2. ว ตถ ประสงค 2.1 เพ อส งเสร มความร ความเข าใจ เก ยวก บแนวค ดการประก นค 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ในโครงการก่อสร้าง จะต้องมีผู้เกี่ยวข้องหลัก เป็น ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## ในโครงการก่อสร้าง จะต้องมีผู้เกี่ยวข้องหลัก เป็น 
+บทท 2 เอกสารและโครงงานท เก ยวข อง 2.1 ทฤษฎ ท เก ยวข อง 2.1 บรรจ ภ ณฑ โลหะ ผล ตภ ณฑ ท สามารถป องก นการซ มผ านของก าซ ความช น และแสงได 100 เปอร เซ นต แม ว าความน ยมใน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![จำหน่าย อุปกรณ์บ้านนกนางแอ่น รังนกนางแอ่น .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## จำหน่าย อุปกรณ์บ้านนกนางแอ่น รังนกนางแอ่น .
+จำหน าย อ ปกรณ บ านนกนางแอ น ร งนกนางแอ น บ านนกแอ น บ านร งนก นครร งนก บล อกท รวบรวมความร เก ยวก บการสร าง บ านนกแอ น [ swiftlet House] เพ อเป นประโยชน แก บ คคลท วไป 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เทคโนโลยีคอนกรีตอธิบายถึงเครื่องบดมวลรวม](%E0%B9%80%E0%B8%97%E0%B8%84%E0%B9%82%E0%B8%99%E0%B9%82%E0%B8%A5%E0%B8%A2%E0%B8%B5%E0%B8%84%E0%B8%AD%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%B5%E0%B8%95%E0%B8%AD%E0%B8%98%E0%B8%B4%E0%B8%9A%E0%B8%B2%E0%B8%A2%E0%B8%96%E0%B8%B6%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%A7%E0%B8%A5%E0%B8%A3%E0%B8%A7%E0%B8%A1.md)
+* [ซอฟต์แวร์รวบรวมข้อมูลจากเครื่องบดมือถือจากแอฟริกาใต้](%E0%B8%8B%E0%B8%AD%E0%B8%9F%E0%B8%95%E0%B9%8C%E0%B9%81%E0%B8%A7%E0%B8%A3%E0%B9%8C%E0%B8%A3%E0%B8%A7%E0%B8%9A%E0%B8%A3%E0%B8%A7%E0%B8%A1%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [การใช้เครื่องบดกรามในการบดหลัก](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%81.md)
+* [อุปกรณ์พื้นฐานและสารเคมีสำหรับทองแดง](%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9E%E0%B8%B7%E0%B9%89%E0%B8%99%E0%B8%90%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B9%80%E0%B8%84%E0%B8%A1%E0%B8%B5%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87.md)
+* [เครื่องบดกราม pe900x1200 900215 1200](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%20pe900x1200%20900215%201200.md)
+* [ดัชนีการทำงานของพันธบัตรสำหรับโรงสี ultrafine](%E0%B8%94%E0%B8%B1%E0%B8%8A%E0%B8%99%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9E%E0%B8%B1%E0%B8%99%E0%B8%98%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%A3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%20ultrafine.md)
+* [ควอตซ์ชิปเหมืองกรวยบด](%E0%B8%84%E0%B8%A7%E0%B8%AD%E0%B8%95%E0%B8%8B%E0%B9%8C%E0%B8%8A%E0%B8%B4%E0%B8%9B%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94.md)
+* [การทำเหมืองแร่ทองคำอ้างว่าขายในโคโลราโด](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%AD%E0%B9%89%E0%B8%B2%E0%B8%87%E0%B8%A7%E0%B9%88%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%84%E0%B9%82%E0%B8%A5%E0%B8%A3%E0%B8%B2%E0%B9%82%E0%B8%94.md)
+* [แร่พลวงไนจีเรียราคาไม่แพง](%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%9E%E0%B8%A5%E0%B8%A7%E0%B8%87%E0%B9%84%E0%B8%99%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B9%84%E0%B8%A1%E0%B9%88%E0%B9%81%E0%B8%9E%E0%B8%87.md)
+* [ความสามารถพื้นฐานของหน้าจอสั่น](%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%AA%E0%B8%B2%E0%B8%A1%E0%B8%B2%E0%B8%A3%E0%B8%96%E0%B8%9E%E0%B8%B7%E0%B9%89%E0%B8%99%E0%B8%90%E0%B8%B2%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%99%E0%B9%89%E0%B8%B2%E0%B8%88%E0%B8%AD%E0%B8%AA%E0%B8%B1%E0%B9%88%E0%B8%99.md)

@@ -1,0 +1,64 @@
+# sbm กรวยบดการปรับบูชที่ผิดปกติ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แหวนปรับแต่งกรวย Crusher](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## แหวนปรับแต่งกรวย Crusher
+เม อพ ดถ งแหวนปร บร ปกรวยบด MGS Casting ได ผล ตช นส วนกรวยบดน เป นเวลาหลายป ช นส วนอะไหล ของเราสามารถเหมาะก บหลายย ห อกรวยบดและย ดอาย สามารถตรงก บช นส วนเด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CMMS Software Computerized maintenance .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## CMMS Software Computerized maintenance .
+- ระบบการเต อนการส งซ อ ในการณ ท stock ใกล จ ดส งซ อ (Warning and alert) ผ าน Email - ระบบการเตือนกรณีมีการเบิกจ่ายผิดปรกติ (Abnormal Issue)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ข่าวสาร - Nanjing Manganese Manufacturing Co.;Ltd](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## ข่าวสาร - Nanjing Manganese Manufacturing Co.;Ltd
+Nanjing แมงกาน สผล ต Co., Ltd ซ งเช ยวชาญในการผล ต metso, sandvik, terex, shanbao, sbm, minyu, trio และอ น ๆ crusher ส กหรอส วนและช นส วนอะไหล crusher หน าแรก เก ยวก บเรา ผล ตภ ณฑ อะไหล Crusher กรวย .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SCBM เปิดใช้ AI บริหารการลงทุน ประเดิมกองทุนแรก .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## SCBM เปิดใช้ AI บริหารการลงทุน ประเดิมกองทุนแรก .
+SCBM เปิดใช้ระบบ AI บริหารการลงทุน โดยประเดิมกองทุนแรก SCBMLT ลุยตลาดหุ้นไทย เสนอขายวันที่ 28 พ.ย. - 4 ธ.ค.60
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SBM - นาย อนุสรณ์ ถึงสุขวงษ์ - GotoKnow](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## SBM - นาย อนุสรณ์ ถึงสุขวงษ์ - GotoKnow
+สถานศ กษาน ต บ คคลก บหล กการบร หารจ ดการ โดยใช โรงเร ยนเป นฐานในการบร หารจ ดการ (School Based Management : SBM) ซ งม หล กการสำค ญ ด งน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รายการกองทุน | บริษัทหลักทรัพย์จัดการกองทุน ไทย ](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## รายการกองทุน | บริษัทหลักทรัพย์จัดการกองทุน ไทย 
+รายการกองท น บร ษ ทหล กทร พย จ ดการกองท น ไทยพาณ ชย จำก ด (SCBAM) กองท นรวมเป นน ต บ คคลแยกต างหากจากบร ษ ทจ ดการ ด งน น บร ษ ทหล กทร พย จ ดการกองท น ไทยพาณ ชย จำ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทความเพื่อธุรกิจ | ปรับลุค SME ให้เข้ากับวิถี .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## บทความเพื่อธุรกิจ | ปรับลุค SME ให้เข้ากับวิถี .
+"ไม ม ทางท SME ท ม ว ธ ค ดแบบเด ม ๆ จะอย รอดปลอดภ ยแบบไม ปร บต วในย คด จ ท ล" หลายป ท ผ านมาม SME เก ดข นมากมาย แต ก ม หลายรายท ป ดต วลง โดยสาเหต ส วนหน งอาจมาจาก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การบริหารสถานศึกษาแบบ School-Based Management: .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## การบริหารสถานศึกษาแบบ School-Based Management: .
+การบร หารสถานศ กษาแบบ School-Based Management: SBM SBM เป นย ทธศาสตร พ ฒนาการศ กษาท เป นการถ ายโอนอำนาจการต ดส นใจจากร ฐหร อสำน กงานเขตพ นท การศ กษาไปย งสถานศ กษา ท ทำให 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![School Based Management : SBM - pinkrose - GotoKnow](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## School Based Management : SBM - pinkrose - GotoKnow
+3.5 ทำการฝ กอบรมคณะกรรมการโรงเร ยน เก ยวก บการบร หารและการจ ดการศ กษา เช นการทำงานเป นท ม การประช ม การต ดส นใจส งการ นโยบาย การวางแผนปฏ บ ต การบร หาร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บ้านครูไผ่](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## บ้านครูไผ่
+การบร หารโดยใช โรงเร ยนเป นฐาน ค อ ? School – Based Management : SBM การกระจายอำนาจ (Decentralization ) ในการต ดส นใจด านว ชาการ (หล กส ตรและการ จ ดการเร ยนการสอน) งานบ คลากร การบร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กล่องเทอร์มินอลบล็อค - MISUMI ประเทศไทย: การจัดหา ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## กล่องเทอร์มินอลบล็อค - MISUMI ประเทศไทย: การจัดหา 
+กล องเทอร ม นอลบล อค (อ ปกรณ ไฟฟ าและช ดควบค ม) สำหร บงานอ ตสาหกรรม MISUMI ม ผล ตภ ณฑ 2600, 9 ล าน ผล ตภ ณฑ ของ ส วนประกอบ, อ ปกรณ ไฟฟ าและช นส วนควบค ม MISUMI ไม ม ข นต ำไม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เอกสารประกอบการอบรมสัมมนา](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## เอกสารประกอบการอบรมสัมมนา
+การโรงเร ยน ไม กระจายไปท วโรงเร ยน ผ บร หารย งใช ความค ดเห นส วนต วในการต ดส นใจ การข ดแย งระหว างผ บร หารคร และคณะกรรมการโรงเร ยน 1.7 ประสบการณ การบร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กรวยบดบูชประหลาด](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## กรวยบดบูชประหลาด
+Nanjing แมงกาน สผล ต Co., Ltd ซ งเช ยวชาญในการผล ต metso, sandvik, terex, shanbao, sbm, minyu, trio และอ น ๆ crusher ส กหรอส วนและช นส วนอะไหล crusher หน าแรก เก ยวก บเรา ผล ตภ ณฑ อะไหล Crusher กรวย .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ซัพพลายเออร์เครื่องบดปรุงอาหารในอินเดียบดกรวยโรงสี](%E0%B8%8B%E0%B8%B1%E0%B8%9E%E0%B8%9E%E0%B8%A5%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%AD%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%9B%E0%B8%A3%E0%B8%B8%E0%B8%87%E0%B8%AD%E0%B8%B2%E0%B8%AB%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5.md)
+* [โรงงานแปรรูปทองคำ](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [ถังเก็บ ariff สำหรับโรงสี](%E0%B8%96%E0%B8%B1%E0%B8%87%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%9A%20ariff%20%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5.md)
+* [เครื่องบดในห้องปฏิบัติการสำหรับแร่](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%AB%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%9B%E0%B8%8F%E0%B8%B4%E0%B8%9A%E0%B8%B1%E0%B8%95%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%81%E0%B8%A3%E0%B9%88.md)
+* [วิธีการแปลง 1m3 ของกรวดเป็นน้ำหนัก](%E0%B8%A7%E0%B8%B4%E0%B8%98%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%81%E0%B8%9B%E0%B8%A5%E0%B8%87%201m3%20%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%94%E0%B9%80%E0%B8%9B%E0%B9%87%E0%B8%99%E0%B8%99%E0%B9%89%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B8%B1%E0%B8%81.md)
+* [ไมครอนเซอร์อลูมิเนียมลูกบดดิบ](%E0%B9%84%E0%B8%A1%E0%B8%84%E0%B8%A3%E0%B8%AD%E0%B8%99%E0%B9%80%E0%B8%8B%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%AD%E0%B8%A5%E0%B8%B9%E0%B8%A1%E0%B8%B4%E0%B9%80%E0%B8%99%E0%B8%B5%E0%B8%A2%E0%B8%A1%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B8%94%E0%B8%B4%E0%B8%9A.md)
+* [ขายโรงงานผลิตลูกเหล็กออกไซด์](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%AD%E0%B8%AD%E0%B8%81%E0%B9%84%E0%B8%8B%E0%B8%94%E0%B9%8C.md)
+* [บดละเอียดทองเหมืองแร่บดหินบด](%E0%B8%9A%E0%B8%94%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9A%E0%B8%94.md)
+* [ขายอุปกรณ์แปรรูปผงมือสอง](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%9C%E0%B8%87%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87.md)
+* [ค่าใช้จ่ายในการขับขี่เครื่องบดหินสุดยอด](%E0%B8%84%E0%B9%88%E0%B8%B2%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%88%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B9%83%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B1%E0%B8%9A%E0%B8%82%E0%B8%B5%E0%B9%88%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%AA%E0%B8%B8%E0%B8%94%E0%B8%A2%E0%B8%AD%E0%B8%94.md)

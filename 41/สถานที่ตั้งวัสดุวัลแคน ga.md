@@ -1,0 +1,64 @@
+# สถานที่ตั้งวัสดุวัลแคน ga
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บางที บรรพบุรุษของเราอาจเจอมนุษย์ต่างดาวตั้งแต่ ](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## บางที บรรพบุรุษของเราอาจเจอมนุษย์ต่างดาวตั้งแต่ 
+Zecharia Sitchin เป นหน งในผ กล าไม ก คนท ยอมเส ยงช ว ตในการสำรวจด นแดนน น ตะแกเป นเก งคร บ เร ยกว าปราชญ ด านภาษาโบราณคนหน งเลยท เด ยว Sitchin ทำการศ กษาโบราณสถาน, แผ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!['สถานกงสุลใหญ่ฯ' ประกาศเตือนฮ่องกงเดือด!! - The .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## 'สถานกงสุลใหญ่ฯ' ประกาศเตือนฮ่องกงเดือด!! - The .
+"สถานกงส ลใหญ ณ เม องฮ องกง" ประกาศเต อนการ ช มน มประท วง – ป ดเส นทางจราจรและระบบขนส งสาธารณะท วเกาะฮ องกง  คนไทยในฮ องกง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานที่ตั้งและสภาพทั่วไป﻿ – โรงเรียนวัดมหาธาตุ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## สถานที่ตั้งและสภาพทั่วไป﻿ – โรงเรียนวัดมหาธาตุ
+สถานท ต ง เลขท ๓/๑ ถนนหน าพระธาต แขวงพระบรมมหาราชว ง เขตพระนคร กร งเทพมหานคร ๑๐๒๐๐ โทรศ พท โทรสาร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานทูต-สถานกงสุลไทย 29 .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## สถานทูต-สถานกงสุลไทย 29 .
+ยงไฮ ม ผ มาใช ส ทธ เล อกต ง 1,570 คน สถานกงส ลใหญ ณ เม องเจดดาห ม ผ มาใช ส ทธ 1,291 คน และสถาน เอกอ ครราชท ต ณ กร งเฮลซ งก ม จำนวนผ มาใช ส ทธ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![พัสดุป่วนสถานกงสุลในถิ่นจิงโจ้ - Thai Rath](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## พัสดุป่วนสถานกงสุลในถิ่นจิงโจ้ - Thai Rath
+เจ าหน าท ตำรวจออสเตรเล ยเข าส บสวนตามสถานกงส ลท กแห งท วกร งแคนเบอร ราและนครเมลเบ ร น หล งสถานกงส ลสว ตเซอร แลนด ประจำนครเมลเบ ร นได ร บพ สด ต องสงส 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เว็บ 2020 - Techno news now](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## เว็บ 2020 - Techno news now
+เม อเร ว ๆ น ท กคนในสหร ฐฯเก ยวก บพน กงานของ บร ษ ท ท ถ กลงโทษทางว น ยหร อชมพ - ล นในบล อกส วนต วท เป ดเผยความล บทางการค าหร อพ ดเร องท ไม ส ภาพเก ยวก บนายจ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานทูตฯ ดึงสติคนไทย อย่าลักลอบขนส่งยาเสพติด!](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## สถานทูตฯ ดึงสติคนไทย อย่าลักลอบขนส่งยาเสพติด!
+สถานเอกอ ครราชท ตไทย ณ กร งโตเก ยว ประเทศญ ป น โพสต เต อนสต คนไทยผ านเฟซบ กของสถานท ตว า หลายส ปดาห ท ผ านมาสถานท ตได ร บแจ งจากตำรวจญ ป นว าคนไทยถ กจ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานทูตและสถานกงสุลคุณสมบัติสื่อสังคม | สถานทูต ](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## สถานทูตและสถานกงสุลคุณสมบัติสื่อสังคม | สถานทูต 
+สถานทูตสหรัฐฯ กรุงเทพฯ สถานกงสุลสหรัฐฯ เชียงใหม่
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานกงสุลใหญ่ ณ นครโอซากา](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## สถานกงสุลใหญ่ ณ นครโอซากา
+(สำหร บคนไทย) เวลาย นเร องน ต กรณ และหน งส อเด นทาง ช วงเช า ๐๙.๓๐ - ๑๑.๓๐ น. ช วงบ าย ๑๓.๓๐ - ๑๕.๐๐ น.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![สถานกงสุลฯ เตือนคนไทยจับตา "ประท้วงฮ่องกง"](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## สถานกงสุลฯ เตือนคนไทยจับตา "ประท้วงฮ่องกง"
+สถานกงส ลใหญ ณ เม องฮ องกง ประกาศเต อนคนไทยในฮ องกง ในว นน 22 ส.ค. 62 เวลา 13.00 น. หล งได ร บรายงานว าจะม การจ ดช มน มประท วงในฮ องกง ในว นพฤห สบด ท 22 และว นศ กร ท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ไทวัสดุ สินค้าและของแต่งบ้าน](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## ไทวัสดุ สินค้าและของแต่งบ้าน
+ไทวัสดุ "ศูนย์รวมของคนรักบ้าน" ที่คุณสามารถหาซื้อวัสดุอุปกรณ์ต่างๆ เพื่อนำไปก่อสร้างและซ่อมแซมบ้าน หรือตกแต่งบ้านได้ตามความต้องการ และ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หน้าแรก - สถานกงสุลใหญ่ ณ นครแฟรงก์เฟิร์ต](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## หน้าแรก - สถานกงสุลใหญ่ ณ นครแฟรงก์เฟิร์ต
+เม อว นท 30 ต ลาคม 2563 สถานกงส ลใหญ ณ นครแฟรงก เฟ ร ต อำนวยความสะดวกคนไทย จำนวน 234 คน จากสหพ นธ สาธารณร ฐเยอรมน ซ งส วนใหญ เป นผ ท ม ความยากลำบากในการดำรงช 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ดาวหาง Elenin / Nibiru (planet X) - Elenin - Events | หน้า .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## ดาวหาง Elenin / Nibiru (planet X) - Elenin - Events | หน้า .
+# โบราณสถานขนาดย กษ #ท กระจ ดกระจายอย ท กหนแห งบนโลกบ ดๆเบ ยวๆใบน หร อเป นความจร งตามในพระค มภ ร ท ว า "กาลคร งหน ง เคยม ย กษ อาศ ยอย บนโลกใบน " คนโบราณสร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เครื่องจิ๊กแร่อุปกรณ์ขุดดีบุก](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B4%E0%B9%8A%E0%B8%81%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%94%E0%B8%B5%E0%B8%9A%E0%B8%B8%E0%B8%81.md)
+* [คอนกรีตบดหินปูนรวม](%E0%B8%84%E0%B8%AD%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%B5%E0%B8%95%E0%B8%9A%E0%B8%94%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%A3%E0%B8%A7%E0%B8%A1.md)
+* [โรงโม่มือสองจากอิตาลี](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B9%82%E0%B8%A1%E0%B9%88%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B8%AD%E0%B8%B4%E0%B8%95%E0%B8%B2%E0%B8%A5%E0%B8%B5.md)
+* [การใช้พลังงานของโรงงานแปรรูปทองคำ](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%9E%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%81%E0%B8%9B%E0%B8%A3%E0%B8%A3%E0%B8%B9%E0%B8%9B%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3.md)
+* [ประหยัดพลังงานอายุการใช้งานยาวนานสำหรับเหล็กทองแดงทองแดง ฯลฯ](%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%AB%E0%B8%A2%E0%B8%B1%E0%B8%94%E0%B8%9E%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%AD%E0%B8%B2%E0%B8%A2%E0%B8%B8%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%83%E0%B8%8A%E0%B9%89%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%A2%E0%B8%B2%E0%B8%A7%E0%B8%99%E0%B8%B2%E0%B8%99%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%94%E0%B8%87%20%E0%B8%AF%E0%B8%A5%E0%B8%AF.md)
+* [การขุดโดโลไมต์สำหรับมก](%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B9%82%E0%B8%94%E0%B9%82%E0%B8%A5%E0%B9%84%E0%B8%A1%E0%B8%95%E0%B9%8C%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%A1%E0%B8%81.md)
+* [โรงงานบดโดโลไมต์ของอินเดีย](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9A%E0%B8%94%E0%B9%82%E0%B8%94%E0%B9%82%E0%B8%A5%E0%B9%84%E0%B8%A1%E0%B8%95%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [ใบเสนอราคาสำหรับเครื่องบดการขุด](%E0%B9%83%E0%B8%9A%E0%B9%80%E0%B8%AA%E0%B8%99%E0%B8%AD%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94.md)
+* [เครื่องบดกรามหิน pe บดละเอียดสำหรับการบดขยี้](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%AB%E0%B8%B4%E0%B8%99%20pe%20%E0%B8%9A%E0%B8%94%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%82%E0%B8%A2%E0%B8%B5%E0%B9%89.md)
+* [โรงโม่เรย์มอนด์มิลล์แนวตั้งโรงสีลูกปูนบด](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B9%82%E0%B8%A1%E0%B9%88%E0%B9%80%E0%B8%A3%E0%B8%A2%E0%B9%8C%E0%B8%A1%E0%B8%AD%E0%B8%99%E0%B8%94%E0%B9%8C%E0%B8%A1%E0%B8%B4%E0%B8%A5%E0%B8%A5%E0%B9%8C%E0%B9%81%E0%B8%99%E0%B8%A7%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%AA%E0%B8%B5%E0%B8%A5%E0%B8%B9%E0%B8%81%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%9A%E0%B8%94.md)

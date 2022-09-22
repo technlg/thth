@@ -1,0 +1,112 @@
+# ตัวอย่างของ smes ในการทำเหมืองซิมบับเว
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SMEs เกษตร-รายย่อย-สตาร์อัพ แหล่งทุนมาถึงแล้ว | .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## SMEs เกษตร-รายย่อย-สตาร์อัพ แหล่งทุนมาถึงแล้ว | .
+SMEs ต องการก เง น ขยายก จการ เสร มสภาพคล อง หล กประก นไม เพ ยงพอ ให บสย. ช วยค ำประก น โทร. ผ ประกอบการ SMEs รายย อย รายเล ก รายกลาง โอกาสท จะเพ มความแข งแ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ฟอร์บส์เปิดบันทึกของคนลวงโลก..หน้าเหลี่ยม .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## ฟอร์บส์เปิดบันทึกของคนลวงโลก..หน้าเหลี่ยม .
+พ ชายพ ดถ งน องสาวว า "เธอม ประสบการณ ในการบร หารจ ดการท ด เธอดำรงตำแหน งประธานบร หารเอไอเอส บร ษ ทผ ให บร การโทรศ พท ม อถ อรายใหญ ของประเทศไทย เม อ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โม่ง Feed ข่าว Ver.25 - Lounge - Fanboi Channel](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## โม่ง Feed ข่าว Ver.25 - Lounge - Fanboi Channel
+>>2 5G น ไม ต องทำเองหรอกให เบ ต วเองทำให ก ได หน งในโคตรเบ ของ ป าก น ล าส ด เกาหล ใต ก ทำได แล ว ท แบน บ.จ น ก อย างท ม งว าส วนน งแหล ะส วนเร องขโมยข อม ลม นเป 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ความท้าทายของ SMEs ในยุค 'ดิจิทัล เปลี่ยนโลก' - .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## ความท้าทายของ SMEs ในยุค 'ดิจิทัล เปลี่ยนโลก' - .
+ความท าทายของ SMEs ในย ค 'ด จ ท ล เปล ยนโลก' SME in Focus 19/03/2019 ร บชมแล วท งหมด  ประกอบการ SMEs ก เป นส งสำค ญต อความสำเร จในการทำธ รก จ 'อ คอมเม 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![http](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## http
+ถ ดมา ค อป จจ ยการลงท นภาคเอกชนม แนวโน มเป นไปในท ศทางท ด ข น ส วนหน งมาจากมาตรการของร ฐบาลในการสน บสน นการลงท นในกล ม 10 อ ตสาหกรรมเป าหมาย ซ งในเด อน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![INTELLIGENCE](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## INTELLIGENCE
+"CE" ม ท มาจากภาษาฝร งเศส "Conformit&eacute; Europ&eacute;enne" โดยประเภทส นค าท ถ กควบค มต องผ านการทดสอบตามมาตรฐานท กำหนด จ งจะสามารถทำการผล ตในสหภาพย โรป หร อนำเข าเพ อจำ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![โอ้โห 'Blockchain' !?!(Cyber Weekend) - MGR Online](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## โอ้โห 'Blockchain' !?!(Cyber Weekend) - MGR Online
+ความท าทายใหม ของธ รก จต วกลางกำล งจะเร มต นข นด วยแรงกดด นของเทคโนโลย ใหม ท เร ยกว า 'บล อกเชน (Blockchain)' ภายใต แนวค ดของแพลตฟอร มแบบเคร อข ายท ท กคนท เก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ผู้ว่าแบงก์ชาติกางโรดแมป SMEs ในบริบทโลกยุค 4.0 .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## ผู้ว่าแบงก์ชาติกางโรดแมป SMEs ในบริบทโลกยุค 4.0 .
+ด านแรก SMEs ต องร ล กและปร บต วเช งร ก โดยให ความสำค ญก บการใช เทคโนโลย เป นฐานสำค ญของการปร บต ว โดยเฉพาะในการเพ มผล ตภาพ การลงท นในโลกย ค 4.0 ไม ได 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ลอดลายมังกรฉบับกาฬทวีป แรงงานจีนบุกขุดทองแอฟริกา](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## ลอดลายมังกรฉบับกาฬทวีป แรงงานจีนบุกขุดทองแอฟริกา
+ยประชากรอาย ต ำกว า 30 ป 7 ใน 10 คนไม ม งานทำ ด งน นการ หล งไหลของแรงงานจ น จ งสร างบรรยากาศท ไม น าอภ รมย น ก  จ นน เป นกรณ แรกท แรงงาน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GIT Gems & Jewelry Issue 8 (May.-Jun. 2013) by Gem and .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## GIT Gems & Jewelry Issue 8 (May.-Jun. 2013) by Gem and .
+By The Gem and Jewelry Institute of Thailand (Public Organization) ISSUE 08 MAY - JUNE 2013 PRECIOUS THESTONE GAILY GEMSTONES ISSUE THE GEM AND JEWELRY INSTITUTE OF THAILAND (PUBLIC ORGANIZATION)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![คลังข่าวและสัมมนา 6 - :: BlogGang](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## คลังข่าวและสัมมนา 6 - :: BlogGang
+ในมาตรา 31 ม ได บ งระบ ข อกำหนดหร อข อจำก ดเง อนไขใดๆ เก ยวก บการใช มาตรการบ งค บใช ส ทธ ในกรณ เพ อการสาธารณประโยชน หร อการใช โดยร ฐบาลว าต องจำก ดในเร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SMEs ไทยกับการเอาชนะใจชาวจีนผ่านช่องทาง E .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## SMEs ไทยกับการเอาชนะใจชาวจีนผ่านช่องทาง E .
+อ คอมเม ร ซข ามพรมแดน (cross-border e-commerce: CBEC) จะเป นหน งในช องทางการดำเน นธ รก จของผ ประกอบการ SMEs ไทย ท ต องการขยายกล มเป าหมายไปย งผ บร โภคชาวจ น อ ไอซ มองว า ม ป จจ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![INTELLIGENCE](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## INTELLIGENCE
+ภาพรวมของตลาดอ นเด ย พบว า เป นตลาดท ม ศ กยภาพ โดยม จำนวนประชากรมากถ ง 1,200 ล านคน (Purchasing Power ประมาณ 350 ล านคน) สำหร บอ ตราการเต บโตของเศรษฐก จในป 2008 ประมาณ 8% ซ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![http - sugarzone](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## http - sugarzone
+ท งน นายณ ฎฐป ญญ ได ให เหต ผลเพ มเต มถ งความม นใจในการเพ มข นของปร มาณอ อยของกล ม KTIS ว า ปกต ปร มาณผลผล ตอ อยของกล ม KTIS จะม ส ดส วนประมาณ 9.2 - 9.5% ของอ ตสาหกรร 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ยุค 4.0 SME ควรปรับตัวอย่างไรใน ยุคดิจิทัล | .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## ยุค 4.0 SME ควรปรับตัวอย่างไรใน ยุคดิจิทัล | .
+กำหนด Roadmap – กระบวนการ Digital Transformation ท งหมดควรทำท ละข นตอน ค ณควรทดสอบสมม ต ฐานของค ณในระด บเล กๆ ก อนท จะดำเน นการท งหมด ในการดำเน นการแต ละข นตอนควรจะจบด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bloggang : jenifaae : คลังข่าวและสัมมนา 5](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Bloggang : jenifaae : คลังข่าวและสัมมนา 5
+ส ดยอดรายการเสวนาสำหร บผ บร หารไอซ ท แห งป 2008ในห วข อ "Top 10 – ICT Trend 2008" ก บการปร บต วขององค กรในย คเศรษฐก จพอเพ ยง พบก บส ดยอดรายการเสวนา
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Financial Management: 2012](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Financial Management: 2012
+(3) ผลกระทบต อส นเช อและการลงท น ว กฤตการณ ทางการเง นคร งน ทำให สภาพคล องในระบบการเง นของโลกเก ดความต งต วอย างร นแรง (Credit Crunch) ด งน น ต นท นการก ย มเง นในร ป 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตัวอย่างการสร้างแบรนด์ของ SMEs (2) - YouTube](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## ตัวอย่างการสร้างแบรนด์ของ SMEs (2) - YouTube
+21/5/2013· ถามว่าจะทำอย่างไรให้ลูกค้าคิดถึงชื่อเราก่อนคีย์เวิร์ด คำตอบคือคุณ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thailand plans to be a Developed Country by 2025 | .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Thailand plans to be a Developed Country by 2025 | .
+1/4/2013· นอกจากท การเส ยช ว ตของเด กและเยาวชนท ระบ ไว ข างต นซ งม สาเหต มาจากการใช รถจ กรยานยนต มากถ ง 88% ในหน งส อ 'ค ม อการจ ดการรถร บ-ส งน กเร ยนท ปลอดภ ย' (ส.ค. 2562 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![หน้าแรก - สพธอ.](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## หน้าแรก - สพธอ.
+ป จจ บ น ธ รกรรมทางอ เล กทรอน กส ได ม บทบาทสำค ญในระบบเศรษฐก จย คใหม และการเจร ญเต บโตทางเศรษฐก จของประเทศ เพ อพ ฒนา ส งเสร มและสน บสน นการทำธ รกรรมทา 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![เกณฑ์วัดและประเมินผลทักษะต่างๆ - Teacher Sophonnawit](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## เกณฑ์วัดและประเมินผลทักษะต่างๆ - Teacher Sophonnawit
+Selection File type icon File name Description Size Revision Time User ĉ เกณฑ การประเม นการจ ดทำโปสเตอร .doc ด ดาวน โหลด 30 ก โลไบต เวอร ช น 1 26 ก.พ. 2559 02:32 Sophonnawit Inkaew ĉ เกณฑ การประเม นการทำงานกล ม.doc
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Financial Management: 2012](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Financial Management: 2012
+1. " ความร ทางการเง น" สำค ญไม ย งหย อนกว า "ความร ทางการงาน" เพราะในช ว ตของคนเราท กคนน น จะม ช วงท จะสามารถหา "รายได จากการทำงาน" (you at work) จำก ด และจะต องม ช ว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การตรวจคนเข้าเมืองของแคนาดา⋆คำแนะนำง่ายๆและ ](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## การตรวจคนเข้าเมืองของแคนาดา⋆คำแนะนำง่ายๆและ 
+การตรวจคนเข้าเมืองของแคนาดาทำได้ง่าย ข้อมูลทั้งหมด 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![กรณีศึกษา SMART SMEs .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## กรณีศึกษา SMART SMEs .
+ทำการว จ ย ค นคว า และทดลองประด ษฐ หวายส งเคราะห จาก Thermo Plastic โดยใช เวลาอย เก อบ 2 ป จนประสบความสำเร จเป นแห งแรกของโลก ใน ป 2540 และได 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![นิยามใหม่ SME ผู้ประกอบการควรรู้ เพื่อดูว่าตัวเอง ](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## นิยามใหม่ SME ผู้ประกอบการควรรู้ เพื่อดูว่าตัวเอง 
+สำหร บในป 2563 แม จะม การแพร ระบาดของไวร สโคว ด-19 แต ก สร างผลกระทบก บผ ให บร การม อถ อในประเทศไทยเพ ยงเล กน อยเท าน น แม ว าผลประกอบการอาจจะม ส ดส วนลดลง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [มือสองบดมือถือในซาอุดีอาระเบีย b1yjo](%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B2%E0%B8%AD%E0%B8%B8%E0%B8%94%E0%B8%B5%E0%B8%AD%E0%B8%B2%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%20b1yjo.md)
+* [พลศาสตร์ของโรงโม่ปูนซีเมนต์ในความเร็วของโรเตอร์](%E0%B8%9E%E0%B8%A5%E0%B8%A8%E0%B8%B2%E0%B8%AA%E0%B8%95%E0%B8%A3%E0%B9%8C%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B9%82%E0%B8%A1%E0%B9%88%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C%E0%B9%83%E0%B8%99%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B9%80%E0%B8%A3%E0%B9%87%E0%B8%A7%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B9%80%E0%B8%95%E0%B8%AD%E0%B8%A3%E0%B9%8C.md)
+* [ตัวแทนจำหน่ายอุปกรณ์บดเมล็ดพันธุ์ชั้นนำของอินเดีย](%E0%B8%95%E0%B8%B1%E0%B8%A7%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9A%E0%B8%94%E0%B9%80%E0%B8%A1%E0%B8%A5%E0%B9%87%E0%B8%94%E0%B8%9E%E0%B8%B1%E0%B8%99%E0%B8%98%E0%B8%B8%E0%B9%8C%E0%B8%8A%E0%B8%B1%E0%B9%89%E0%B8%99%E0%B8%99%E0%B8%B3%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B4%E0%B8%99%E0%B9%80%E0%B8%94%E0%B8%B5%E0%B8%A2.md)
+* [เครื่องบดกรามบดชิ้นส่วนกราม pe250x400 เครื่องบดกรามไพโอเนียร์](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B8%9A%E0%B8%94%E0%B8%8A%E0%B8%B4%E0%B9%89%E0%B8%99%E0%B8%AA%E0%B9%88%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%20pe250x400%20%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%B2%E0%B8%A1%E0%B9%84%E0%B8%9E%E0%B9%82%E0%B8%AD%E0%B9%80%E0%B8%99%E0%B8%B5%E0%B8%A2%E0%B8%A3%E0%B9%8C.md)
+* [ขายเครื่องบดขากรรไกรมือสองของฟิลิปปินส์](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%82%E0%B8%B2%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B9%84%E0%B8%81%E0%B8%A3%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%AA%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%9F%E0%B8%B4%E0%B8%A5%E0%B8%B4%E0%B8%9B%E0%B8%9B%E0%B8%B4%E0%B8%99%E0%B8%AA%E0%B9%8C.md)
+* [ผู้จำหน่ายเครื่องอัดก้อนถ่านหินในแอลจีเรีย](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%A5%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)
+* [ขายเหมืองหินแกรนิต andra](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%81%E0%B8%A3%E0%B8%99%E0%B8%B4%E0%B8%95%20andra.md)
+* [โรงงานปูนซีเมนต์ขนาดเล็กในโรงงานปูนซีเมนต์คุชราตในเคนยา](%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%83%E0%B8%99%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B8%B9%E0%B8%99%E0%B8%8B%E0%B8%B5%E0%B9%80%E0%B8%A1%E0%B8%99%E0%B8%95%E0%B9%8C%E0%B8%84%E0%B8%B8%E0%B8%8A%E0%B8%A3%E0%B8%B2%E0%B8%95%E0%B9%83%E0%B8%99%E0%B9%80%E0%B8%84%E0%B8%99%E0%B8%A2%E0%B8%B2.md)
+* [ผู้ผลิตกรวยบดมือถือจากหินดินดาน](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B8%94%E0%B8%B2%E0%B8%99.md)
+* [กรวยบดวัสดุหนาแน่น](%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%E0%B8%A7%E0%B8%B1%E0%B8%AA%E0%B8%94%E0%B8%B8%E0%B8%AB%E0%B8%99%E0%B8%B2%E0%B9%81%E0%B8%99%E0%B9%88%E0%B8%99.md)

@@ -1,0 +1,80 @@
+# mp j6 ตีนตะขาบประเภทมือถือบดกราม
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vocab Soldier - Scribd](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Vocab Soldier - Scribd
+1 ม 7 ประเภท ค อ ค าส งนโยบาย, สาส นย ทธการ, ค าส งย ทธการ, ค าส งการช วยรบ, ระเบ ยบปฏ บ ต ประจ า, ค าส งเต อน และค าส งเป นส วนๆ 2 ม ค าส งท วไป, ค าส งเฉพาะ, บ นท กส ง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cn ระบบmp, ซื้อ ระบบmp ที่ดีที่สุด ส่งตรงจากโรงงาน .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Cn ระบบmp, ซื้อ ระบบmp ที่ดีที่สุด ส่งตรงจากโรงงาน .
+ซ อ Cn ระบบmp ท ด ท ส ด ส งตรงจากโรงงาน Cn บน Alibaba แล วย งหาแหล งท มา ระบบmp จากท วโลกได อย างง ายดาย ร บใบเสนอราคามากมายภายใน 24 ช วโมง!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mini waterproof locator dog cat pet gps tracker tracking .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Mini waterproof locator dog cat pet gps tracker tracking .
+Only US$35.35, buy best mini waterproof locator dog cat pet gps tracker tracking devices real time sale online store at wholesale price.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![abdou now online's (@abdoualittlebit) profile on .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## abdou now online's (@abdoualittlebit) profile on .
+1,153 Followers, 281 Following, 11 Posts - See Instagram photos and videos from abdou now online (@abdoualittlebit)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![รูปมือถือ Samsung Galaxy J6 :: Thaimobilecenter .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## รูปมือถือ Samsung Galaxy J6 :: Thaimobilecenter .
+ตอนน ค ณอย ท >> หน าแรก >> catalog ม อถ อ >> Samsung >> Samsung Galaxy J6 >> ร ปม อถ อ Samsung Galaxy J6 ดูรายละเอียดเกี่ยวกับมือถือ Samsung Galaxy J6 >>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JCB Toughphone Pro-smart และ Sitemaster2 .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## JCB Toughphone Pro-smart และ Sitemaster2 .
+รถข ดด นหร อรถแทรกเตอร อาจจะเป นความค ดแรกเม อค ณได ย นช อ JCB แต พวกเขาก ได เข ามาม ส วนร วมในตลาดม อถ อก นบ างแล ว ซ งม อถ อร นล าส ดท วางจำ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตู้นิยายไทย (หมายเลข 6) - Literature - Fanboi Channel](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## ตู้นิยายไทย (หมายเลข 6) - Literature - Fanboi Channel
+ไอ เร องส งเลทน แย นะ แต ระด บเด อนสองเด อนก ย งพอร บได (อย าให ระด บป แบบก ก แล วก น--) แต ไอ เร องจำนวนหน าไม ตรงก บท บอกน ค อน าเกล ยดมากกก ถ าจร งน เหม อน 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ความแตกต่างระหว่างรถแข่ง Moto3, Moto2 และ MotoGP](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## ความแตกต่างระหว่างรถแข่ง Moto3, Moto2 และ MotoGP
+รถแข งท ร วมช งช ยในรายการ MotoGP น น หล กๆ แล วจะม ด วยก นท งหมด 3 ร น ซ งได แก Moto3, Moto2 และ MotoGP ซ งเป นร นใหญ ส ดและแรงท ส ด แต จะม รายละเอ ยดปล กย อย รวมไปถ งกฎกต กาท 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ก้าวข้ามขีดจำกัดในตัวคุณไปกับ moto g6 plus และ .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## ก้าวข้ามขีดจำกัดในตัวคุณไปกับ moto g6 plus และ .
+moto g6 plus และ moto g6 ถ กพ ฒนาให ม ประส ทธ ภาพการทำงานเหน อช นย งข นท ง หน าจอ ด ไซน ต วเคร อง และประส ทธ ภาพการทำงาน ท รองร บช ปเซ ตประมวลผลท รวดเร วทรงพล งอย าง 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ตั้งกระทู้ถามตอบสำหรับ มือถือ Samsung Galaxy A8 .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ตั้งกระทู้ถามตอบสำหรับ มือถือ Samsung Galaxy A8 .
+ต งกระท ถามตอบสำหร บ ม อถ อ Samsung Galaxy A8 Star ช อของค ณ (สมาช กlogin ท น ) / สม ครสมาช ก  E-mail: หมวดหม :  ห วข อ :  Tags | More ข อความ  ใส ป พ.ศ. ป จจ บ น 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![พิมพ์หน้านี้ - มาเล่าเรื่องสงครามโลกครั้งที่ 2 .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## พิมพ์หน้านี้ - มาเล่าเรื่องสงครามโลกครั้งที่ 2 .
+ห วข อ: มาเล าเร องสงครามโลกคร งท 2 ก นคร บ เร มห วข อโดย: nars ร กในหลวงและแผ นด นไทย ท ก นยายน 21, 2007, 12:02:14 AM ในห วข อกระท " อนาคตท กษ ณ " ม การกล าวเปร ยบเท ยบระหว 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![แจงคลิปชายถือ M16 บุกหอพัก-ลากวัยรุ่น .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## แจงคลิปชายถือ M16 บุกหอพัก-ลากวัยรุ่น .
+ผกก.สภ.เมืองสมุทรปราการ แจงกรณีคลิปกลุ่มชายฉกรรจ์ถือ M16 บุก 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jeep Wrangler 6x6 งาน โมดิฟาย ของพี่จีนที่ออกมา .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Jeep Wrangler 6x6 งาน โมดิฟาย ของพี่จีนที่ออกมา .
+บร ษ ทแห งหน งในประเทศจ นนาม G. Pattonได เป ดเผยรถยนต Jeep Wrangler ท ถ กด ดแปลงให กลายเป นรถข บเคล อนหกล อ พร อมก บขนานนามม นว า Tomahawk ข าวรถยนต
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Galaxy J6 มีประกันจอแตกให้มั้ยครับ - Pantip](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Galaxy J6 มีประกันจอแตกให้มั้ยครับ - Pantip
+ค อผมพ งทำ J6 จอแตกไปคร บ แต ย งใช งานได ปกต ท กอย าง ท ชล นเหม อนเด ม ผมซ อมาตอนเด อนต ลาป ท แล ว (9 เด อน) อยากร ว าประก นได ม ยคร บ แล วถ าไม ได เปล
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hugging Face](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Hugging Face
+ท ไหน UC ห าม C มาถ ง D F G วะ G ว ธ I รอบ M ก าหนด .N ว าว,P ท าย lQ ภาค R ( ! ฉ นต องการ RS เก นไป sV ชาว [ ต างหาก l สมา p 1: #d 19 g ถ อ wk ร อง Lm เล ก o ม คน wu ส .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hugging Face](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Hugging Face
+3J . ท และ ของ I ใน [9 " wm ? Ә การ 4 เป น g ได ว า 턟 จะ M -, ความ s ม j ไม v ให > เรา Ǥ พระ คน 䚧, เขา อย าง ค ณ b ก บ ذ น น H น แต ไป IL ผ k จาก ก T ท า ๆ มา Ҹ ท m ! w ผม พวก Xk  ; อย ` แล ว . ซ ง o ร บ พระ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Builder Magazine Vol.13 issue November 2014 by TTF .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Builder Magazine Vol.13 issue November 2014 by TTF .
+MISCELLENEOUS 14 16 18 28 32 34 90 BUILDER NEWS BUILDER GOSSIP AROUND THE WORLD LES MISCELLANEOUS TALKING WITH ARCHAN MANOP μÅÒ´ÍÊÑ ËÒÏ »ÅÒÂ»Õ 2557 BUILDING CODES & CONCEPT UPDATE 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [เหมืองถ่านหินในประเทศไทย](%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%96%E0%B9%88%E0%B8%B2%E0%B8%99%E0%B8%AB%E0%B8%B4%E0%B8%99%E0%B9%83%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%97%E0%B8%A8%E0%B9%84%E0%B8%97%E0%B8%A2.md)
+* [เครื่องบดในทวีปแอฟริกา](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%83%E0%B8%99%E0%B8%97%E0%B8%A7%E0%B8%B5%E0%B8%9B%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2.md)
+* [กระบวนการขุดทองในออสเตรเลีย](%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B8%B8%E0%B8%94%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B9%83%E0%B8%99%E0%B8%AD%E0%B8%AD%E0%B8%AA%E0%B9%80%E0%B8%95%E0%B8%A3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2.md)
+* [อัตราการบดกันเสียง](%E0%B8%AD%E0%B8%B1%E0%B8%95%E0%B8%A3%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%B1%E0%B8%99%E0%B9%80%E0%B8%AA%E0%B8%B5%E0%B8%A2%E0%B8%87.md)
+* [pdf คู่มือกรวยบด pysb1324](pdf%20%E0%B8%84%E0%B8%B9%E0%B9%88%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%E0%B8%9A%E0%B8%94%20pysb1324.md)
+* [คัดกรองพืชบดมือถือในยุโรป](%E0%B8%84%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B8%9E%E0%B8%B7%E0%B8%8A%E0%B8%9A%E0%B8%94%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%96%E0%B8%B7%E0%B8%AD%E0%B9%83%E0%B8%99%E0%B8%A2%E0%B8%B8%E0%B9%82%E0%B8%A3%E0%B8%9B.md)
+* [เครื่องบดคอนกรีตสำหรับขายอุปกรณ์บดทำเหมือง](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%84%E0%B8%AD%E0%B8%99%E0%B8%81%E0%B8%A3%E0%B8%B5%E0%B8%95%E0%B8%AA%E0%B8%B3%E0%B8%AB%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B8%AD%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%A3%E0%B8%93%E0%B9%8C%E0%B8%9A%E0%B8%94%E0%B8%97%E0%B8%B3%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87.md)
+* [ล้อขนาดเล็กติดตั้งเพลาแนวตั้งเคลื่อนที่กระแทกบดและคัดกรองโรงงานในแอฟริกาใต้](%E0%B8%A5%E0%B9%89%E0%B8%AD%E0%B8%82%E0%B8%99%E0%B8%B2%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B8%95%E0%B8%B4%E0%B8%94%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B9%80%E0%B8%9E%E0%B8%A5%E0%B8%B2%E0%B9%81%E0%B8%99%E0%B8%A7%E0%B8%95%E0%B8%B1%E0%B9%89%E0%B8%87%E0%B9%80%E0%B8%84%E0%B8%A5%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B9%81%E0%B8%97%E0%B8%81%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%84%E0%B8%B1%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [กระบวนการตรวจสอบความถูกต้องของโรงงานผลิตลูก](%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%95%E0%B8%A3%E0%B8%A7%E0%B8%88%E0%B8%AA%E0%B8%AD%E0%B8%9A%E0%B8%84%E0%B8%A7%E0%B8%B2%E0%B8%A1%E0%B8%96%E0%B8%B9%E0%B8%81%E0%B8%95%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%82%E0%B8%A3%E0%B8%87%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A5%E0%B8%B9%E0%B8%81.md)
+* [แร่ทองคำที่ผลิตในแอลจีเรีย](%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%A5%E0%B8%88%E0%B8%B5%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2.md)

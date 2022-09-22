@@ -1,0 +1,52 @@
+# การขุด baryte และความเสื่อมโทรมของสิ่งแวดล้อม
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![การถ่ายทอดเทคโนโลยีการจัดการปุ๋ยมันส าปะหลังเฉพาะ ](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## การถ่ายทอดเทคโนโลยีการจัดการปุ๋ยมันส าปะหลังเฉพาะ 
+และการเล อกใช ป ยให ถ กส ตร ถ กอ ตรา ถ กเวลา และถ กว ธ จ านวน 9 คร ง และม ผ เข าอบรม รวม 690 คน เป นกระบวนการ  ค านวณความแตกต างของผลผล 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อ - RMUTR](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## บทคัดย่อ - RMUTR
+สาขามน ษยศาสตร ส งคมว ทยาและการศ กษา I 135 3. ผลการว จ ย 1. ป จจ ย เง อนไขความส าเร จการบร หารจ ดการการพ ฒนาน กว จ ยเพ อเสร มสร างช มชนให เข มแข ง
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Srinagarind Medical Journal](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Srinagarind Medical Journal
+ผ ป วยม โอกาสเก ด GDM ซ ำในการต งครรภ คร งต อๆ ไปร อยละ 60-70 และม อ บ ต การณ ของการเก ดความผ ดปกต ในการทนต อกล โคสหร อโรคเบาหวานโดยเฉพาะชน ดท 2 ในอนาคตส งถ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อ - RMUTR](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## บทคัดย่อ - RMUTR
+ค าส าคัญ:การเตรียมความพรอม, เกษียณอายุ, ขาราชการครู, พระนครศรีอยุธยา. Abstract. The objectives of this research were To study the factors affecting the preparation before the retirement. of teachers. To study the importance of preparation before the retired teacher and To study the differences.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อ - MCRU](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## บทคัดย่อ - MCRU
+การวิจัยในคร งน ม ว ตถ ประสงค เพ อส ารวจชน ดและความช กของ แมลงว นด ดเล อดท พบใน  ร บการหาความส มพ นธ ระหว างป จจ ยเส ยง และการ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อแบบขยาย ( Extended Abstract 2 2561](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## บทคัดย่อแบบขยาย ( Extended Abstract 2 2561
+(b) สามารถลดเวลา และข นตอนของการเบ กว ตถ ด บ (c) สามารถเพ มความแม นย าในการตรวจน บส นค าคง คล ง 3 ว ธ การด าเน นงานว จ ย 1.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทปฏิบัติการที 6 การเตรียมตัวอย่าง (Simple preparation)](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## บทปฏิบัติการที 6 การเตรียมตัวอย่าง (Simple preparation)
+บทปฏ บ ต การท 6 การเตร ยมต วอย าง (Simple preparation) แบคท เร ยเป นส งม ช ว ตขนาดเล กท ม อย มากมายหลายชน ดท ˜งม อย ในสภาพแวดล อมท วไปโดยไม ก อโรคและ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ความรู้และการปฏิบัติตามเทคโนโลยีปุ๋ยสั่งตัดเพื่อ ](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## ความรู้และการปฏิบัติตามเทคโนโลยีปุ๋ยสั่งตัดเพื่อ 
+KHON KAEN AGR. J. 46 SUPPL. 1 : (2018). 821 ด งกล าวม ประส ทธ ภาพและประส ทธ ผลต อไป โดยม ว ตถ ประสงค ของการว จ ย 1) ล กษณะพ นฐานส วน
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อ - RMUTR](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## บทคัดย่อ - RMUTR
+สาขามน ษยศาสตร ส งคมว ทยาและการศ กษา I 746 1.4 เพ อพยากรณ ความเคร ยดของผ บร หารสถานศ กษา ส งก ดส าน กงานเขตพ นท การศ กษาม ธยมศ กษา ในเขตภาค
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![บทคัดย่อ - RMUTR](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## บทคัดย่อ - RMUTR
+สาขามน ษยศาสตร ส งคมว ทยาและการศ กษา I 10 1.2.2 เพ อเปร ยบเท ยบป จจ ยพ นฐานส วนบ คคลก บระด บความพ งพอใจของผ เข าร บการฝ กอบรมท ม ต อการ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## บทความที่เกี่ยวข้อง:
+* [ขายบริดจ์พอร์ทมิลล์](%E0%B8%82%E0%B8%B2%E0%B8%A2%E0%B8%9A%E0%B8%A3%E0%B8%B4%E0%B8%94%E0%B8%88%E0%B9%8C%E0%B8%9E%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%97%E0%B8%A1%E0%B8%B4%E0%B8%A5%E0%B8%A5%E0%B9%8C.md)
+* [ผู้ผลิตสายพานลำเลียงของจีน](%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%AA%E0%B8%B2%E0%B8%A2%E0%B8%9E%E0%B8%B2%E0%B8%99%E0%B8%A5%E0%B8%B3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%88%E0%B8%B5%E0%B8%99.md)
+* [ราคาเครื่องบดแบบพกพา pper ในแอฟริกาใต้](%E0%B8%A3%E0%B8%B2%E0%B8%84%E0%B8%B2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%9E%E0%B8%81%E0%B8%9E%E0%B8%B2%20pper%20%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%AD%E0%B8%9F%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B9%83%E0%B8%95%E0%B9%89.md)
+* [กระบวนการไหลของการอัดเม็ดแร่เหล็ก](%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%9A%E0%B8%A7%E0%B8%99%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B9%84%E0%B8%AB%E0%B8%A5%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%AD%E0%B8%B1%E0%B8%94%E0%B9%80%E0%B8%A1%E0%B9%87%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81.md)
+* [เครื่องบดอุตสาหกรรมของเยอรมนี](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%AD%E0%B8%B8%E0%B8%95%E0%B8%AA%E0%B8%B2%E0%B8%AB%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B9%80%E0%B8%A2%E0%B8%AD%E0%B8%A3%E0%B8%A1%E0%B8%99%E0%B8%B5.md)
+* [แผนที่ของออสเตรเลียพร้อมเมือง](%E0%B9%81%E0%B8%9C%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%E0%B8%82%E0%B8%AD%E0%B8%87%E0%B8%AD%E0%B8%AD%E0%B8%AA%E0%B9%80%E0%B8%95%E0%B8%A3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2%E0%B8%9E%E0%B8%A3%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B9%80%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87.md)
+* [ตัวแทนจำหน่ายเครื่องบดกรวย usa](%E0%B8%95%E0%B8%B1%E0%B8%A7%E0%B9%81%E0%B8%97%E0%B8%99%E0%B8%88%E0%B8%B3%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B8%81%E0%B8%A3%E0%B8%A7%E0%B8%A2%20usa.md)
+* [ผลิตภัณฑ์เหมืองแร่ผู้ผลิตเครื่องลอยแร่เงิน](%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B8%A0%E0%B8%B1%E0%B8%93%E0%B8%91%E0%B9%8C%E0%B9%80%E0%B8%AB%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%9C%E0%B8%B9%E0%B9%89%E0%B8%9C%E0%B8%A5%E0%B8%B4%E0%B8%95%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%A5%E0%B8%AD%E0%B8%A2%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%87%E0%B8%B4%E0%B8%99.md)
+* [เครื่องบดแร่รวมทั้ง](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B8%9A%E0%B8%94%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B8%A3%E0%B8%A7%E0%B8%A1%E0%B8%97%E0%B8%B1%E0%B9%89%E0%B8%87.md)
+* [เครื่องแยกทองคำจากแร่เหล็กในซิดนีย์ออสเตรเลีย](%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%87%E0%B9%81%E0%B8%A2%E0%B8%81%E0%B8%97%E0%B8%AD%E0%B8%87%E0%B8%84%E0%B8%B3%E0%B8%88%E0%B8%B2%E0%B8%81%E0%B9%81%E0%B8%A3%E0%B9%88%E0%B9%80%E0%B8%AB%E0%B8%A5%E0%B9%87%E0%B8%81%E0%B9%83%E0%B8%99%E0%B8%8B%E0%B8%B4%E0%B8%94%E0%B8%99%E0%B8%B5%E0%B8%A2%E0%B9%8C%E0%B8%AD%E0%B8%AD%E0%B8%AA%E0%B9%80%E0%B8%95%E0%B8%A3%E0%B9%80%E0%B8%A5%E0%B8%B5%E0%B8%A2.md)
